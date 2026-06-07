@@ -9,13 +9,12 @@
 
 | Chapter | Title | Target | Drafted | % | Status |
 |--------:|-------|-------:|--------:|--:|--------|
-| 1 | Collision | 45,000 | ~11,300 | 25% | **In progress** |
-| 2 | The Brief & The Studio | 45,000 | 0 | 0% | Skeleton ready (old ch.3–4) |
-| 3 | Orbit | 45,000 | 0 | 0% | Skeleton ready (old ch.5–8) |
-| 4 | Two Cities | 45,000 | 0 | 0% | Skeleton ready (old ch.9–10) |
-| 5 | Reckoning | 45,000 | 0 | 0% | Skeleton ready (old ch.11–15) |
-| 6 | Midnight | 45,000 | 0 | 0% | Skeleton ready (old ch.16–19) |
-| | **TOTAL** | **270,000** | **~11,300** | **~4%** | |
+| 1 | Collision | 45,000 | ~24,900 | 55% | **In progress** (14 scenes; party → studio reveal → deal) |
+| 2 | Orbit | 45,000 | 0 | 0% | Skeleton ready (old ch.5–8) |
+| 3 | Two Cities | 45,000 | 0 | 0% | Skeleton ready (old ch.9–10) |
+| 4 | Reckoning | 45,000 | 0 | 0% | Skeleton ready (old ch.11–15) |
+| 5 | Midnight | 45,000 | 0 | 0% | Skeleton ready (old ch.16–19) |
+| | **TOTAL** | **225,000** | **~24,900** | **~11%** | *Note: reveal folded into Ch.1 (it IS the collision), so the old Ch.2 "Brief & Studio" is absorbed; book is now 5 long chapters.* |
 
 *Plus: the complete ~38k short-form draft in `chapters/` (full arc, all 19 beats) serves as the locked scene skeleton/source for the long chapters.*
 
