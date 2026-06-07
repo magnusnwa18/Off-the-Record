@@ -354,6 +354,36 @@ It was the happiest he would ever be before everything broke, and some animal pa
 
 ---
 
+## ◆ viii-b. A City You Can Only Have at Night
+
+*Ella*
+
+They learned to have the city the way you have a thing you're not supposed to have — late, sideways, in the hours when the people who'd recognise either of them were asleep.
+
+It became a kind of game, though neither of them called it that, because calling it a game would have admitted it was a relationship and they were both still, in daylight, pretending it was a deal with an unusual amount of kissing in it. The rules were unspoken and absolute: nowhere either world went. Not the bars off Stevenson Square where the scene drank; not the places near the academy where the lads ended up; not anywhere a phone might point and a story might start. Which left them, gloriously, with the other Manchester — the one underneath the photographed one, the one Ella had fallen for at eighteen and Cal had hidden in for five years, and which turned out, to both their surprise, to be largely the same Manchester, as if they'd been circling each other through the same back streets for years without colliding.
+
+They walked the canals at midnight, the towpaths black and shining, the water holding the orange light in long broken ribbons, and Cal told her which of the converted mills had been what — *that one was a cotton finishing works, my brother did a session in the basement of that one before it was flats, there's a bloke does mad ambient stuff out of the arch under there still* — and she realised he carried a whole private map of the city, a producer's map, venues and studios and the histories of buildings, laid invisibly over the one everyone else walked through. She gave him hers in exchange: the fabric wholesalers behind the station that sold offcuts by weight, the print place in Salford that owed half the city favours, the caff on the edge of Ancoats that did the only flat white worth the walk, the spots where the light went the exact orange she built worlds out of. Two maps of the same city, each invisible to everyone but its maker, laid over each other at last.
+
+They went to a late thing once — the only public risk they took, and they took it because Knox was playing a tiny unannounced set in a railway arch in the small hours, the kind of thing the scene called a *function*, and Cal wanted her to see what the music actually was, in a room, before the campaign, before the gloss, the raw live fact of it. They stood at the back in the dark, not touching, two strangers who'd met at a party, and Knox ran the new tracks over a system too big for the room, and when the single came on — her single, the one she'd built the world for — the arch full of people who didn't know either of them put their hands up, and Ella felt Cal go still beside her in the dark, the counting stillness, and she knew that four feet down in the track his brother was climbing and falling through a hundred bodies who had no idea they were carrying him, and she found Cal's hand in the dark, just for a second, just the once, where no one could see, and held it, and let go, and neither of them said anything, and it was the loudest thing that happened all night.
+
+And they spent hours, mostly, in the studio doing nothing — which was the part that frightened her most, because Ella had never in her life been good at nothing, had never once experienced an empty hour as anything but a thing to be filled, optimised, made useful. With Cal she learned to waste time. She learned to lie on the battered sofa while he built a beat and not reach for her phone, not plan, not manage, just exist in a warm room while someone she — while someone made something beautiful three feet away. She'd catch herself, sometimes, doing nothing, and feel the old panic start, *you're wasting time, time is the one thing you can't earn back, get up, be useful, be the strong one* — and then she'd look at the back of his head bent over the desk and she'd let the panic go, deliberately, the way she'd learned to let the flinch go, and she'd stay, doing nothing, being no one's strong one, and it was the most radical thing she had ever done.
+
+"What are you smiling at," he said one such night, not turning round.
+
+"I'm not doing anything. I'm lying here doing absolutely nothing and the world hasn't ended."
+
+"Revolutionary."
+
+"It actually is. For me. You have no idea." She put her arm over her eyes. "My whole life, an empty hour was a debt. You had to pay it back in productivity or it counted against you. And I'm just — spending one. On nothing. On a sofa. While you make something I'm not even going to bill anyone for." She heard him stop working, the small sound of the room when he went still. "Don't make it a thing. I'll get up in a minute and be useful again."
+
+"Don't," Cal said. "Get up, I mean. There's nothing to be useful for. That's the whole — that's the only thing this room's for. It's the one place neither of us has to be useful. Stay useless. With me." And she'd stayed, useless, in the warm, and the dryers of her own flat three miles south kept tumbling other people's laundry and the canals held the orange light and the city ran its sleepless underneath, and for five weeks two of the most relentlessly useful people in Manchester learned, in secret, in an unmarked room, the entirely forbidden art of being, together, gorgeously, restfully, good-for-nothing.
+
+It could not last. They both knew it couldn't last. That was almost the point — that they held it the way you hold a held breath, knowing the body will eventually insist, treasuring it precisely because it was running out. But for five weeks they had the city you can only have at night, and each other, and the radical uselessness of a warm room, and Ella Savage-Oluwa, who had been the strong one since she was nine, got to find out what she was like when she wasn't carrying anything at all.
+
+She was, it turned out, funny. She was, it turned out, soft. She was, it turned out, a person, underneath the project manager — and the person had been waiting down there, folded small, since a cold hall and a midnight kitchen table, for someone to build a room safe enough to come out in. He'd built it sideways, with a heater and a second mug and the price torn off everything, and she'd walked into it, and for five weeks she lived there, and it was the first home she'd had since she was nine that didn't require her to hold up the roof.
+
+---
+
 ## ◆ ix. The First Crack
 
 *Ella*
