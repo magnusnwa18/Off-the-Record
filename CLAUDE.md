@@ -52,5 +52,11 @@ A book-writing toolkit lives in **`.claude/skills/`**. Load and apply the releva
 
 The three woven B-plots: **(1) Priya & Tom** (the honest mirror; the V-sweepstake irony), **(2) the degree show & Margot Hale** (Ella's professional stakes), **(3) Knox's commercial-feature temptation** (authenticity in the music world).
 
-## Current next action
-Draft **Chapter Three — Two Cities** (`chapters-long/03-two-cities.md`): Ella's weekend home in South London for her mother's 50th (the family table, telling them the truth about her career, Tioluwa); Cal inside the rugby/family machine; **the big match** where both worlds stand in one stadium — his father in the stand, Ella secretly watching, the full weight Cal carries made visible — and Cal nearly telling his father the truth at the rail. Continuity: Ella & Cal are *already secretly together* (since the Ch.2 kiss, ~5 weeks); Ella knows about Jordan; the catch (Sasha/offer/leak) is building toward Ch.4 — Reckoning.
+## Current status — FULL DRAFT COMPLETE ✅
+All **5 long chapters drafted, every one ≥15,000 words** (`chapters-long/01–05`). Total ≈ 94,500 words. The novel runs end-to-end and closes with the Parklife epilogue ("THE END"). Main arc + all three B-plots resolved.
+
+**Stage now → REVISE** (per revision-partner: switch from drafting to revising). Recommended next passes, cheap on tokens, one focus each:
+1. Continuity/polish read against `STORY-BIBLE.md` (catch any drift; confirm information-state).
+2. Even out chapter lengths if desired — Ch.2/3/4/5 sit ~15–18k, Ch.1 ~30k; either grow the others or trim Ch.1 for balance.
+3. prose-craftsman line-polish pass, one chapter at a time.
+Do NOT re-draft; the story is whole. Protect it; refine it.

@@ -10,14 +10,17 @@
 | Chapter | Title | Target | Drafted | % | Status |
 |--------:|-------|-------:|--------:|--:|--------|
 | 1 | Collision | (natural) | ~30,600 | ✅ | **COMPLETE** at natural length (19 scenes; party → reveal → deal → first week → match-week). |
-| 2 | Orbit | (natural) | ~14,500 | ✅ | **COMPLETE** at natural length (11 scenes; argument → Jordan reveal → no-invoice → furnace → first kiss → stolen weeks → first crack → the turn). |
-| 3 | Two Cities | 15k+ floor | ~15,300 | ✅ | **COMPLETE, >15k** (13 scenes; both cities + woven B-plots + the trap closing). |
-| 4 | Reckoning | 15k+ floor | 0 | 0% | **Next.** Must clear 15k. Old ch.11–15: the catch falls — offer vs. leak, the black-hour break. |
-| 5 | Midnight | 15k+ floor | 0 | 0% | Old ch.16–19. Must clear 15k. |
+| 2 | Orbit | 15k+ floor | ~18,500 | ✅ | **COMPLETE, >15k** (argument → Jordan reveal → no-invoice → furnace → first kiss → stolen weeks → B-plots → first crack → the turn). |
+| 3 | Two Cities | 15k+ floor | ~15,300 | ✅ | **COMPLETE, >15k** (both cities + woven B-plots + the trap closing). |
+| 4 | Reckoning | 15k+ floor | ~15,100 | ✅ | **COMPLETE, >15k** (offer, leak, exposure, ghost-knife, the bottom, both climbs begun). |
+| 5 | Midnight | 15k+ floor | ~15,000 | ✅ | **COMPLETE, >15k** (chapel film, the crossing, reveal on their terms, the reps, epilogue — THE END). |
 
-> **Policy (current): every chapter ≥15,000 words** (floor, not 45k). Grow via woven B-plots, never padding. Ch.1–3 all clear it.
+> **Policy: every chapter ≥15,000 words** (floor). Grow via woven B-plots, never padding.
 
-> **Decision (author, this session):** chapters run to their **natural strong length**, not a forced 45k each. Priority is a complete, well-paced NOVEL. Ch.1 & Ch.2 are done; drafting now advances front-to-back through Ch.3–5.
+## ✅ FULL DRAFT COMPLETE
+**All 5 long chapters drafted; every one ≥15k. Total long-form ≈ 94,500 words. Ends with the Parklife epilogue ("THE END").**
+- B-plots resolved: Priya & Tom (together), Margot (rival→ally), Knox (chose true; album gold), the degree show (Ella's back-wall win + Imogen's better seat in October).
+- **Stage now → REVISE.** Cheap next pass (fresh session): continuity/polish read against `STORY-BIBLE.md`; even out lengths if desired (grow Ch.2 toward Ch.1, or trim Ch.1); prose-craftsman polish per chapter.
 
 *Plus: the complete ~38k short-form draft in `chapters/` (full arc, all 19 beats) serves as the locked scene skeleton/source for the long chapters.*
 
