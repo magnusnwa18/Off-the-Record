@@ -346,6 +346,42 @@ And Knox, down the line, after a silence, said: "Bruv. I've been waiting since w
 
 ---
 
+## ◆ xiii-d. The Date Everything Converged On
+
+*Ella*
+
+The album launch had been on the calendar for months — a converted chapel off the top of Oldham Street, the centrepiece of the rollout Sasha had planned back when she still controlled the story. The leak had turned it from a celebration into a vulture-circling, a *will-V-show-his-face* media event, every outlet that ran the shallow piece now angling for an invite to the scene of the unmasking.
+
+Which made it, Ella realised, building the film, the *exact* room she needed. Not despite the vultures. Because of them. Every story she wanted to overwrite would be present in one space on one night, cameras out, waiting for the worst version to complete itself — and that was precisely where you premiered the true version, in the room the lie had booked, in front of the people who came for the mugging, so that the reframe happened live, all at once, undeniable. She went to Knox — because it was his launch, his album, his night, and she would not build anything on top of it without his yes — and showed him the rough cut in the back of his car, and Knox watched it twice and put his hood up and turned to the window so she wouldn't see his face, and said, "Yeah. We do it. But only if *he* says yes. It's his grave, Ella. You can't dig it up for him." And she said, "The film doesn't reveal anything — watch the end again. It never names him. It's a door, not a window. He steps through it or he doesn't. I'm only building the room." And Knox, who had, unbeknownst to her, just promised Cal the same stage for the same night, looked at her with an expression she couldn't read and said, "Funny. The room's getting crowded," and didn't explain, and secured her the slot, and said nothing to either of them about the other, because some things you let arrive on their own.
+
+---
+
+## ◆ xiii-e. A Crack in the Silence
+
+*Cal*
+
+His mother called on day six. "Your father rang me," she said, and Cal sat down, because his parents did not speak, had barely spoken in the years since she left. "Asking about the music. About — whether I knew. He was —" her voice was careful. "He wasn't angry, Cal. He kept saying the same thing, over and over, like he couldn't get past it: *the second half. He played like Jordan in the second half and I was proud and I didn't know I was being proud of the thing I —*" she stopped. "He couldn't finish it. But that's the sentence, baby. That's the whole crack in him. He's realised the thing he was proud of on that pitch is the thing he spent five years calling a waste in Jordan, and it's broken something open in him, and he doesn't have the tools to say it, so he called his ex-wife at eleven at night and said half a sentence forty times. That's your father weeping, in the only language he's got. *Don't come to the house* is already softening into something. He just can't be the one to say so. You'll have to give him a door too. Not just the girl. Both of them. The same door, if you can. Show them both, at once, that the music isn't the road that kills." A pause. "Whatever you're building. Build it big enough for your father to walk through too."
+
+And Cal sat with that — *build it big enough for your father to walk through too* — and the crossing he was planning with Knox grew, in his mind, a second dimension: not just an apology to Ella, not just a confession to the public, but an invitation to a man in a heavy coat to come and watch the truth and choose whether the door was a door. He would have to get his father into that chapel. He didn't know how. But the silence had cracked, and a cracked silence is a thing you can, with enough courage, put your hand into and widen.
+
+---
+
+## ◆ xiii-f. The Room Gets Crowded
+
+*Cal & Ella*
+
+So by the end of the black hour, without either of them knowing it, the same chapel on the same night had become the destination of two separate climbs and one crowded secret.
+
+Ella was building a film to premiere there — a door for the ghost, a reframe for the vultures, a true story told without a name, a room she'd built for an audience of one who might not come.
+
+Cal was building a crossing to perform there — Knox had given him the stage, ten minutes, to step out of the corner and tell the truth on his own terms, to apologise the size of the wound, to invite his father through a door big enough for both of them.
+
+And Knox, who'd promised the same night to both of them and told neither, sat on the secret with the delight of a man who has accidentally become the matchmaker of a reunion neither party knows is coming — because he'd seen their faces all spring, and he knew the film was for Cal and the crossing was for Ella, and he had decided, being Knox, being the kind of friend who knows when to hold a door, to let the room fill up on its own and see what happened when two people who'd each built a true thing in silence walked into the same chapel and found the other one already there.
+
+Whether it would work — whether a room and a crossing built three hundred miles apart in total silence would actually meet, or miss each other in the noise — was the only question left. But the date was set. The chapel was booked. The vultures were coming for the worst version. And two people who'd hit bottom in two cities were climbing, separately, toward the same midnight, each carrying a true loud terrifying thing, neither knowing the other was climbing too.
+
+---
+
 ## ◆ xiv. Two Climbs, Two Cities
 
 *Cal & Ella*
