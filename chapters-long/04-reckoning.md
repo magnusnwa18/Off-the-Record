@@ -406,6 +406,18 @@ The climb. The note that falls so the next thing can rise.
 
 ---
 
+## ◆ xiii-h. Two Shows, One Week
+
+*Ella*
+
+The cruelty of the calendar was that the degree show and the album launch fell in the same week — the externals walking the long room past Margot's flawless empty perfumery on the Thursday, the chapel and its vultures on the Friday — so that Ella spent the worst nine days of her life building two things at once: the back-wall installation that was her actual degree, and the film that was her actual heart, and not sleeping, and not texting him, and holding all of it the new way her mother had taught her, which was to keep telling Priya and her mum the true weight instead of performing the strong-one alone.
+
+"You're going to do both," Priya said, on the floor, day eight, watching Ella's eyes red over two timelines. "The show and the film. The career thing and the heart thing. And here's what I think, and you can ignore me because I do marketing not whatever you are — I think they're the same thing now. The externals are going to walk your degree-show wall and the whole cohort's going to be polished fictional brands and yours is going to be the only real one, the one that's about a true thing happening in real life, and the film's part of that, it's the centre of it, *a secret that got out, beautiful and a kind of grief* — you said that in September before any of it was real. You built the brief for your own life before you knew you were living it." Priya squeezed her foot. "So stop thinking of it as two shows. It's one. Your whole final project is *the truth, told right, when it would've been easier to tell it wrong or not at all.* That's the degree and the film and the boy, all one thing. Annan's going to lose her mind. Margot's going to get the front wall and you're going to get the career, exactly like she said. Now drink this and cut the thing."
+
+And Ella drank it and cut the thing, and understood that Priya was right — that she'd stopped being able to tell where the degree ended and the heart began, because she'd finally built a life where the work and the love and the truth were one undivided thing instead of three compartments she managed separately. Which was, she realised, the exact opposite of Cal's whole disease — his two boxes, his split self — and the thing she was about to find out, in a chapel on a Friday, was whether he'd finally learned to do the same: to stop being two people in two rooms, and walk into one room as the whole of himself, in front of everyone, on the same night she premiered the proof that the whole of him was worth seeing.
+
+---
+
 ## ◆ xiv. Two Climbs, Two Cities
 
 *Cal & Ella*
