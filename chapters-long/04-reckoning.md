@@ -382,6 +382,30 @@ Whether it would work — whether a room and a crossing built three hundred mile
 
 ---
 
+## ◆ xiii-g. The Longest Silence
+
+*Cal & Ella*
+
+The days between the leak and the launch were the longest either of them had ever lived, and they lived them in a silence so total it had a texture, a weight, a sound — the sound of two phones not ringing.
+
+Ella worked nine days on the film and did not text him, because she'd said everything in the eleven messages he hadn't answered and the next move could not be words, it had to be the room. She woke each morning to the muscle-memory reach for the phone, the half-second before she remembered, and then the remembering, and then the work. She caught herself, more than once, narrating things to him in her head — *Cal, look at this cut, Cal, I found the exact orange, Cal* — and had to stop, and the stopping was a small death each time, the way grief is just love with nowhere to go.
+
+Cal built his crossing with Knox and did not text her either, because his mother was right that an apology by text was a theft dressed as a gift, and because some animal part of him had finally understood that he had to *show up*, in the flesh, in the light, and that anything less was the ghost taking the cheap exit again. But God, he wanted to. He'd never wanted anything the way he wanted to call her at 4 a.m. and say *it wasn't you, I always knew, I'm so sorry, I did the thing I do.* He held it. It was the hardest rep of his life, harder than the flat pass, harder than the second half — to want to reach someone that badly and to choose, instead, to build the thing that would cost him, and wait.
+
+They were, in those nine days, the two loneliest people in Manchester, three miles apart, each building a true thing toward the same chapel, each certain the other was lost to them — and the reader of their story, if there were one, would have wanted to take them both by the collars and shout *you're building toward the same room, you idiots, it's the same night, just call each other* — but they couldn't hear it, because that's the thing about the bottom: you can't see the other climber in the dark, you can only climb, and trust, with no evidence at all, that the thing you're building is worth building even if no one ever stands in it.
+
+And on the morning of the launch, Cal got one text. Not from Ella. From a number he'd stopped expecting. His father. Three words, the same number of words as the cruelest text Cal had sent Ella, the family economy of the unsaid:
+
+*Where is it.*
+
+Just that. *Where is it.* The launch. The chapel. His father, in his own three-word language, asking for the address — asking, in the only way Gareth Vance could ask, to be let through the door. Cal sat on the edge of the bare bed and read it eleven times, the way Ella had read his eleven times, and understood that the silence had not been sealing. It had been his father, drowning, finding the edge of the pool. *Where is it.* He was coming. The crack had become a door, opened from the inside, by a man who couldn't say sorry or scared or proud but could, at the last, say *where is it*, which meant all three.
+
+Cal texted back the address. Then he sat in the grey morning of the most important night of his life and let himself feel, for the first time since the leak, something other than the bottom: the thin, terrifying, upward thing that his brother's four notes had been trying to teach him for five years.
+
+The climb. The note that falls so the next thing can rise.
+
+---
+
 ## ◆ xiv. Two Climbs, Two Cities
 
 *Cal & Ella*
