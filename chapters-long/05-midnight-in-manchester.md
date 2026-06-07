@@ -174,9 +174,45 @@ Margot got the first job. A good agency, a real start, polish rewarded. She came
 
 And in October, when the supernova had long passed and the scene had moved on and no one was offering her anything off the back of a story, Ella called Imogen Clarke-Bayo, and Imogen said the seat was a better seat now, and explained why — *unbuyable is the only thing worth money in twenty years* — and Ella took it, on her terms, in the cold clear light of nothing exploding, the slow way, the earned way, the back-wall way. Her mother put the offer letter on the fridge. Her father made sure they spelled both names right on the contract. Tioluwa asked if Ella could get her work experience, and Ella said yes, and meant it, the minefield-walker clearing one more path for the sister who got to take the cleared road.
 
-## ◆ ix. The Records
+## ◆ viii-b. The Contract Room, Again
 
 *Cal*
+
+The senior club brought him back into the glass room six weeks after the chapel, and it was the same room — the same long table, the same view of the training pitches — but everything in it had inverted, because the story had.
+
+Webb had done his job. Freed from fighting a blog's frame, he'd built his own and sold it hard: not *distracted prospect with a double life* but *the most interesting young player in the country, a ten with genuine artistry, depth, dimension, a man who turned private grief into a gift for half a million strangers — exactly the temperament you want running a backline in the eightieth minute.* And the due-diligence team, who had paused the contract over "reputational clarity," had found, when they looked properly, not a liability but a story a marketing department would kill for. The broadsheet piece — Jordan's name in the second paragraph, *he cracked it* — had done more for Cal's reputation than any number of clean training-ground interviews. Because, as it turned out, and as Ella had known all along, the frame is the whole thing, and a told truth looks like depth where a discovered one looks like a liability, and the only variable Cal had ever controlled was which of those he chose to be.
+
+"You should know," the attack coach said, sliding the number back across the table, bigger now than before the pause, "the gaffer watched the film. The one from the launch. He's not a — he's a hard man, doesn't say much. He watched it twice and then he said, 'Sign the fly-half who can feel that much and still kick a winning drop-goal in the rain. You can't coach feeling that much. You can only coach the rest.'" The coach almost smiled. "Whatever you did, son — the secret, the brother, the music, all of it — it didn't cost you this room. It's the reason you're in it. Now. There's a clause your agent's insisting on, about you being allowed to produce, openly, in season, which is unusual, and I'm told it's non-negotiable, and the gaffer's agreed to it, because the gaffer thinks a ten who makes music in the week kicks better on the weekend, and the gaffer is usually right. So." The number, face up this time. "Welcome."
+
+And Cal signed it — both names, Callum Vance, the producer and the fly-half on the same line at last — and rang his father, who couldn't speak for a moment and then said "good lad" in a wrecked voice, and rang Ella, who was in London, who said "I'm proud of you and also I told you the frame was everything and I'd like that acknowledged," and he acknowledged it, and that night he didn't go to a bar to celebrate, he went to the new studio and made a beat with Jordan four feet down and his own name ready to go on the front of it, and it was the first track he'd ever made knowing it would carry his name in the daylight, and it sounded, he thought, like a man who'd finally stopped holding his breath.
+
+## ◆ viii-c. The Studio With No Window
+
+*Cal & Ella*
+
+They took a new studio — because the old one was burned, photographed, a location now, the high window a wound — and the new one was on an upper floor with no window anyone could shoot through, which Ella pointed out was a metaphor and Cal pointed out was just sensible, and they were both right.
+
+She designed it. Of course she did. She built him a room the way she built everything, reading the function and serving it: the desk where the light fell right, the battered sofa rescued and reupholstered, Jordan's spare records — his father had insisted Cal take half the milk crate, *he'd want them played, not shelved* — along one wall, and by the little sink, without comment, two heavy mugs, the kind she liked, and a heater on a timer set for the hour she usually arrived. He noticed. He said nothing, the way she'd taught him, the no-invoice way, and she noticed him notice, and said nothing back, and the whole grammar of their care had become a language with no debts in it, spoken fluently now by two people who'd each, a year before, flinched at being given anything.
+
+"It's the same room, basically," Cal said, the first night, looking around at the world she'd built him. "As the old one. You've made me the same room again."
+
+"I've made you a room you can be the whole of yourself in," Ella said. "Both names on the door. No window for anyone to shoot through, because you're not hiding anymore — you just get to choose who comes in. That's the difference between a hiding place and a home. A hiding place keeps everyone out. A home lets you choose." She sat on the reupholstered sofa, in the warm, in the room she'd built for the ghost who wasn't a ghost anymore. "Play me the centre. The real one. The one you wouldn't play me the first week, when you closed the laptop and said 'not today.'"
+
+And he played it — the buried track, Jordan's four notes, the bit at the end — not buried four feet down this time but right there, present, audible, his brother's actual voice in the room with them, *listen to this bit, I think I cracked it, tell me I cracked it* — and Ella listened the whole way through, and at the end she didn't say anything clever, because she'd learned a year ago that the moment you reach for a clever thing to say about someone's most naked work you tell them it's a performance. She just said, "He cracked it. And so did you. You cracked the thing he was asking you to — you finally listened, out loud, where everyone can hear. Took you five years and a chapel, but you listened." And Cal, in the studio with no window, with his brother in the room and the woman who'd built the room beside him, finally heard the falling note as the thing it had always been trying to be — not grief, not a wound, but the sound a held breath makes when it's finally, after five years, let go.
+
+## ◆ viii-d. Sasha, A Coda
+
+*Ella*
+
+Ella ran into Sasha once more, the following spring, at an industry thing in London — Sasha at a new label now, smoother than ever, the smile still with no eyes in it, except this time, for a second, the eyes were there.
+
+"The film's being taught," Sasha said, by way of hello. "Did you know? A friend lectures on campaigns and she uses your chapel film as the case study. *Reframing a hostile narrative in real time.* You out-produced me, in front of the whole scene, with eight minutes and a true story, and now they teach it to children." She sipped her drink. "I've thought about it a lot, actually. Why it worked and my version wouldn't have. And I think it's because I only ever had the elements, and you had the thing I could never buy, which is that you actually loved him. The story worked because it was *true*, and it was true because you weren't producing it, you were — protecting it. I produce. You protect. And it turns out protect beats produce, when the stakes are real, every single time, and I find that genuinely annoying and I've decided to respect it." She put out a hand. "If you ever get tired of protecting things and want to come somewhere we just *win*, the offer's open. You'd be frightening."
+
+"I know," Ella said, shaking it. "That's exactly why I won't. Thanks, Sasha." And she meant the thanks, because Sasha had, in her ruthless way, taught Ella the most useful thing she knew — that whoever frames the story owns what it means — and Ella had taken the lesson and used it for love instead of leverage, which was the only revenge worth having on a producer of people: to beat them with the one element they'll never understand.
+
+## Epilogue — One Year On
+
+*Ella*
 
 The first time Cal went back to the house — invited this time, *come to the house*, the inversion of the wound — his father had moved Jordan's records.
 
