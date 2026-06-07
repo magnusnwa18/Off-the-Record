@@ -47,5 +47,8 @@ A book-writing toolkit lives in **`.claude/skills/`**. Load and apply the releva
 - `git push -u origin claude/tender-feynman-SqN9U`; retry on network errors (2s/4s/8s/16s).
 - Do **not** open a PR unless explicitly asked.
 
+## Chapter length policy (author decision, current)
+Chapters run to their **natural strong length**, not a forced 45k each — priority is a complete, well-paced novel over hitting a word quota. Ch.1 (~30.6k) and Ch.2 (~14.5k) are **complete**. Expand later only with scenes that earn their place.
+
 ## Current next action
-Continue **Chapter Two — Orbit** (`chapters-long/02-orbit.md`): the no-invoice kindness scene, the furnace-under-the-lid, the warehouse shoot, and the chip-shop first kiss at 3 a.m. — then drive toward 45k. (Ch.1 sits at ~29.6k with a complete arc; can be topped to 45k in a later pass.)
+Draft **Chapter Three — Two Cities** (`chapters-long/03-two-cities.md`): Ella's weekend home in South London for her mother's 50th (the family table, telling them the truth about her career, Tioluwa); Cal inside the rugby/family machine; **the big match** where both worlds stand in one stadium — his father in the stand, Ella secretly watching, the full weight Cal carries made visible — and Cal nearly telling his father the truth at the rail. Continuity: Ella & Cal are *already secretly together* (since the Ch.2 kiss, ~5 weeks); Ella knows about Jordan; the catch (Sasha/offer/leak) is building toward Ch.4 — Reckoning.
