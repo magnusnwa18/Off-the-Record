@@ -554,4 +554,90 @@ And Eleonora Savage-Oluwa, who saw everything, who had built a world and climbed
 
 The door opened.
 
-But that is the next collision, and it belongs to the room on the other side of it — and to tell it properly we have to go in, past the threshold, into the unmarked studio where two people who'd each spent their whole lives perfecting a posture were about to discover, in front of a label and a fixer and the one artist who knew the secret, that the only other person in the city who could read their hips had just walked in out of the rain.
+---
+
+## ◆ xiii. The Collision
+
+*Cal*
+
+Knox had arrived at the studio the way Knox arrived everywhere, which was as a weather system — door banging, hood down, a carrier bag of cans swinging from one hand and his phone held out in front of his mouth like a microphone while he finished a voice note to someone, and three people trailing in his wake whom Cal catalogued before any of them had spoken, because cataloguing the room was the first thing Cal did in any room and the studio was *his* room, which made the cataloguing both instinctive and territorial. A videographer with a camera already half-raised, filming the staircase, the door, the texture, building the rollout's behind-the-scenes before there was anything to be behind. A label A&R in box-fresh trainers who kept touching things — the desk, the foam, the spines of Cal's records — with the proprietary curiosity of someone working out what it was all worth. And a woman in expensive understatement, late twenties, who didn't touch anything, who stood just inside the door and let her eyes do what Cal's eyes did, the slow inventory, and who Cal therefore identified instantly as the most dangerous person in the room, the way you always recognise your own kind fastest. Sasha, Knox called her. She smiled at Cal with her whole face and exactly none of her eyes, and he added a line to her file before she'd said three words: *reads rooms. reads people. reads me. careful.*
+
+"V," Knox said, dropping the cans, pulling Cal into a one-armed thing that no one else in the world was allowed to do. He was the only living person who used the name to Cal's face, and he used it like a secret they were both keeping, which it was, which was the whole basis of the only uncomplicated relationship in Cal's life. "Play them the thing. Play them the thing, man, they don't believe me, I've been telling them all week and they think I'm gassing."
+
+"Sit down. You're making the room nervous."
+
+"I *am* the room," Knox said, with total accuracy, and dropped onto the battered sofa under the high window, sprawling, a king on a found throne, and the others arranged themselves, and the A&R said something about scheduling and Q2 and the woman Sasha said something smooth and weightless about *the bigger picture, the rollout, the story, it's all about the story now, the music's the easy part* — and Cal, who did not want to talk about the story, who wanted to talk about nothing, who in an ideal world would have had no one in this room at all, turned to the desk and did the one thing that quieted everything, which was play them the music and let it argue on his behalf.
+
+He played the track he'd been killing himself over for three weeks. The one that sounded like the inside of his head. He'd taken the living girl back out of the bright top of it that morning — couldn't risk anyone hearing a thing he didn't understand yet — so it was the cold true version, the lonely one, drums hanging back half a beat, the chopped vocal pitched into a memory of itself, the low synth moving like weather, and four feet down, where only the body could find it, his brother. He played it loud, on the good monitors, and he did the thing he always did, which was watch the room instead of listening to the music, because he knew the music, the music was the one thing in his life he was certain of, and the only new information available was in the faces.
+
+And he watched it land.
+
+He watched the A&R stop scrolling. Watched the videographer, unprompted, lower the camera to just *listen*, which is the highest compliment a person who films everything can pay a thing. Watched Sasha's professional smile slip, for one unguarded bar, into something genuine and almost hungry, the look of a person who deals in stories recognising a story bigger than she'd been promised. The track ended. The room held the particular silence that good work makes, the silence Cal lived for, the only applause he trusted.
+
+"That," said Sasha, into it. "That is the record. Marcus, I don't care what else is on the project, that's the first single, that's the whole campaign, that's —" she shook her head, and for a second she wasn't a fixer, she was just a person who'd heard a thing. "Who *are* you," she said to Cal, lightly, smiling again, the eyes back in their professional dark. "Genuinely. Two years I've been hearing about V. No face, no name, no socials. You know what that is, at this level? That's not shyness. Shyness doesn't make a record like that. That's a *strategy.* And I love a strategy. I'd love to know whose it is."
+
+"It's the work's strategy," Cal said, even, easy, the flat pass. "The work doesn't need a face. Faces just give people something to talk about instead of the work."
+
+"Mm," said Sasha, and the *mm* was Webb's *mm*, the *mm* of a professional choosing not to push yet, filing it, and Cal understood with total clarity that he had just been identified as the most interesting unsolved problem in the room by exactly the kind of person whose job was solving such problems, and that this was a thing he would have to manage, starting now, forever.
+
+"We need to talk about who builds the world for this," Sasha went on, all business. "The visual identity. I am not putting a sound like *that* out with a stock-template rollout and a man in a hoodie standing in front of a brick wall. We need an eye. A real one, that costs less than the eyes that cost forty grand, which means young, which means hungry, which means we find them now before they know what they're worth. Marcus has a candidate."
+
+"My boy Tom knows her," Knox said, from the sofa. "Well — Tom knows everyone, Tom's like the rugby internet. She did a thing for 'Lowlight,' just for the love, put it online, no one paid her, and it's —" he kissed his fingers, a chef in an advert. "She *gets* it. Not the look. The *feeling.* She's coming now, should be —"
+
+The buzzer went.
+
+And Cal — who had hit that door release a thousand times, half-listening, his mind always somewhere in a mix — got up and crossed to the little panel by the door and pressed the button without thinking, the way you do the small automatic things, his attention still down in the track wondering whether the chopped vocal wanted to come back in the second eight, and he heard the street door go below and feet on the stairs that smelled of old paper, climbing, and he turned back toward the desk to pull up the session for her to hear, *some art direction girl, real vision, you'll like the sound of her stuff* —
+
+The studio door opened.
+
+And Ella Savage-Oluwa walked in out of the grey Northern Quarter light with a leather folder under her arm and her face composed into pure, expensive, weaponised professionalism — *good afternoon, thank you so much for seeing me* — already scanning the room the way she'd scanned the party, the way Cal scanned every room, the slow methodical inventory, and her eyes went round it: the sofa, Knox, the A&R, Sasha, the half-raised camera, the high window, the monitors. And arrived at the desk.
+
+At him.
+
+Cal watched it happen in real time — the scan reaching him, the recognition firing, the entire architecture of her afternoon reorganising itself behind her eyes in the space of a single held breath — and to her enormous and instantly admirable credit, not one muscle in her face moved. The professionalism stayed welded on. But he knew her now; he'd spent a week not thinking about her with the dedication of a man thinking about someone constantly; he'd built a clean file around the shape of her; and so he saw the thing underneath the welded calm, the thing she'd done at the party, the holding-of-the-gaze-instead-of-the-apology — except now, behind it, fractionally, he saw the exact thing he was feeling, the thing he'd have bet money she was feeling, the small internal free-fall that in his head sounded like: *oh, no.*
+
+And, half a beat behind it, its terrible twin, which they would both spend weeks pretending hadn't also been there: *oh.*
+
+Because here it was. The collision he hadn't seen coming, that no read could have predicted, that the odds said was absurd — the one person in the city who could read his hips, the stranger he'd put in the bright top of a song, walking into the one room where the locked door had no lock, the room where he was V, in front of a label and a fixer and the artist who knew the secret, holding a folder with a world in it, about to discover with everyone watching that the ghost she'd been hired to dress had a face she'd already taken apart on a table in Fallowfield.
+
+The whole shape of both their lives wobbled on the head of a pin for one long bar of silence.
+
+"We've met," Ella said.
+
+It was, Cal thought, with the helpless surge of admiration he'd felt at the party, the single most perfect move available. *Truthful* — so she couldn't be caught later in a lie, in a room where one of these people filmed everything and another solved people for a living. *Vague* — so it surrendered nothing, named nothing, gave the camera and the fixer no story to seize. And it threw the next word to *him* — made him choose, in front of everyone, exactly how much to spend, exactly which version of the truth to release into a room that absolutely could not, under any circumstances, learn that "V" was a fly-half whose father stood at a touchline at six in the morning. She'd handed him the ball flat and weighted and let him decide where to put it, and she'd done it in two words, and the two words had bought them both the only thing that mattered, which was time.
+
+"At a party," Cal said. Even. Easy. The daylight voice. The flat pass, sold with the face. "Friend of Tom's, right. Few weeks back."
+
+"Right." Ella crossed the room and put out her hand and he took it and they shook — firm, brief, professional, two strangers who'd met once in passing — and her hand was warm and dry and her grip told him nothing because she'd built it to tell him nothing, and her eyes, for the half-second they were close enough that only he could read them, told him an entire paragraph her mouth wasn't: *I don't know what you are. I don't know what this is. But I need this room more than I need to understand it, and you need it quiet, so we are both going to be very, very careful, and you are going to follow my lead, because I have just done you the largest favour of your life and you know it.* He let go of her hand half a second after he should have. He saw Sasha see it.
+
+"Small world," Sasha said pleasantly, watching them both with the patient total attention of a person whose entire profession was noticing the things people tried not to show. Cal added another line to her file. *Saw the half-second. Filing it. Dangerous.*
+
+"Manchester's a village pretending to be a city," Ella said smoothly, without missing a beat, turning the line into nothing, turning herself fully toward Knox and Sasha and the actual room — and *dropping Cal entirely*, cutting him from her attention with a completeness that was the right move, the only move, and that stung him in a place he had absolutely no business being stung. "Can I play you something? Well — I built a deck, it's on here —" she touched the leather folder "— but honestly the deck's secondary. I'd rather you heard the world first and then I'll show you how I'd build it. Can we —" she gestured, with beautiful nerve, at the desk, at the monitors, at *him*, at the producer she'd met at a party, "— can we play the single again? And I'll talk over it. I work better out loud."
+
+"You haven't heard the single," the A&R said. "It's not out. It's not anywhere. You can't have —"
+
+"I don't need to have heard *this* one to know what it's doing," Ella said. "I've heard everything else he's made. I've spent a week inside it. I could draw you the shape of this single with my eyes shut." She looked, finally, briefly, at Cal — at the producer, at V, a candidate addressing the magic she'd been hired to dress — and there was nothing in her face but the work. "May I?"
+
+And Cal looked at her, and she looked at him, and the room did not know it was watching the third move of a game whose first two moves had happened against a wall on Egerton Road. He reached over and cued the track. He pressed play.
+
+And Ella Savage-Oluwa stood in the middle of the unmarked studio above the vintage shop and talked over his music — *his* music, the inside of his own head, the cold true lonely version, the one with his brother four feet down — and what she said about it took the floor clean out from under him, slow, like a held breath finally going.
+
+She didn't talk about it the way a stylist sells a service. She didn't reach for adjectives or references or the names of other campaigns. She talked about it like she had been *inside* it, like she'd been living in the track for a week, which she had. "This sound is nostalgic for a present it's still living in," she said, walking the room slowly, her eyes half-closed, her hand drifting as if she were touching the air the sound moved through. "It's homesick for *now.* That's the whole feeling and everything has to serve it. The drums are late on purpose — hear it, they're reluctant, they don't want to arrive, like someone putting off going home. It's the sound of a person who is brilliant at something and resents being watched doing it." She had no idea. She was reading the music the way she'd read the room, the way she'd read *him*, naming the architecture, the load-bearing fear under the charm — and she did not know that the man whose interior she was describing aloud to a record label was standing four feet away with his hand still on the desk, not breathing. "So the world can't be slick. Slick would be a lie, and this track does not tell a single lie, which is rare, which is the whole reason it's good. It has to look like the inside of a night bus at three in the morning — that orange streetlight, condensation on the glass, everything beautiful and slightly ruined and just past being yours. I'd shoot all of it on the wrong film stock, the cheap expired stuff, so the colour bleeds. I'd make the type look like it got left out in the rain and dried wrong. The whole identity should feel like —" she opened her eyes, and they were bright, and she said the thing that nearly ended him "— like a secret that got out. Like something private that everyone can suddenly see, and it's beautiful, and it's also a kind of grief, because the second a secret gets out it stops being yours."
+
+The room was silent. Even Sasha. The track played on under her words, the drums refusing to arrive, and four feet down, where no one knew to listen, three notes climbed and one fell.
+
+*A secret that got out,* Cal thought, and did not trust himself to make a single sound.
+
+"That," said Knox, very quietly, sitting up off the sofa for the first time, "is exactly the thing. That's exactly *it*, that's what I've been trying to say all week and couldn't." He looked at Sasha. Sasha looked at the A&R. The A&R, slowly, nodded.
+
+"Show us the deck," Sasha said. "Though I think we already know."
+
+Ella opened the leather folder.
+
+And Cal Vance — who had spent five years building a wall between the boy at the touchline and the ghost behind the boards, who had organised his entire existence around the single principle that no one would ever be allowed to stand in both his rooms at once, who had made himself into a held breath specifically so that the two halves of him could never be in the same frame — watched the one girl who'd ever read his hips walk straight through the wall as if it weren't there and set up her work on the far side of it, in front of witnesses, and he understood, with the cold clean clarity he normally reserved for reading a defensive line a half-second before it broke, that the wall was already gone. Not breached. *Gone.* It had stopped existing the moment she walked in, because a wall only works if no one can see both sides, and now there was a person in the world who could see both sides at once, who'd seen the ghost and the swagger and read the same fear under each, and you cannot rebuild a wall in front of the one person who has already seen around it.
+
+She got the job. Of course she got the job. There was never, from the moment the door opened, any version of the afternoon where she didn't. The deck was extraordinary — Cal watched the A&R hold the printed pages instead of scrolling, exactly as she'd known he would — but the deck was almost beside the point; she'd won the room when she described the inside of his head to his face and called it a brief. Sasha said the words *we'd love to bring you on* before Ella had reached the third page, and started talking timelines and day-rates that made Ella's professional mask flicker for one human instant into a twenty-one-year-old who'd just changed her own life, and Knox came off the sofa and hugged her, and the videographer filmed it, and the A&R shook her hand, and the room filled up with the warm chaos of a thing decided.
+
+And through all of it Cal stood at his desk in the room where he kept the only true part of himself, and watched a stranger he'd lost to at a party become, in the space of forty minutes, the keeper of his secret, the architect of his world, and the single greatest threat to the life he'd spent five years building — and felt, underneath the cold clear understanding of how much trouble he was in, a thing he had not felt since a box room and a brother and the word *listen*, a thing he had no business feeling, a thing that frightened him more than Sasha and Webb and his father and the whole machine combined.
+
+He felt seen. And he didn't want it to stop.
