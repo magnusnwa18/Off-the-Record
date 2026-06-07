@@ -9,12 +9,12 @@
 
 | Chapter | Title | Target | Drafted | % | Status |
 |--------:|-------|-------:|--------:|--:|--------|
-| 1 | Collision | 45,000 | ~24,900 | 55% | **In progress** (14 scenes; party → studio reveal → deal) |
-| 2 | Orbit | 45,000 | 0 | 0% | Skeleton ready (old ch.5–8) |
+| 1 | Collision | 45,000 | ~29,600 | 66% | Full arc drafted (18 scenes; party → reveal → deal → first week). Can top to 45k later. |
+| 2 | Orbit | 45,000 | ~4,400 | 10% | **In progress** (3 scenes; the argument/work, why styling, the Jordan reveal) |
 | 3 | Two Cities | 45,000 | 0 | 0% | Skeleton ready (old ch.9–10) |
 | 4 | Reckoning | 45,000 | 0 | 0% | Skeleton ready (old ch.11–15) |
 | 5 | Midnight | 45,000 | 0 | 0% | Skeleton ready (old ch.16–19) |
-| | **TOTAL** | **225,000** | **~24,900** | **~11%** | *Note: reveal folded into Ch.1 (it IS the collision), so the old Ch.2 "Brief & Studio" is absorbed; book is now 5 long chapters.* |
+| | **TOTAL** | **225,000** | **~34,000** | **~15%** | Long-form prose. (Plus complete ~38k short-form skeleton in `chapters/`.) |
 
 *Plus: the complete ~38k short-form draft in `chapters/` (full arc, all 19 beats) serves as the locked scene skeleton/source for the long chapters.*
 
