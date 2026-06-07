@@ -82,4 +82,74 @@ She left first. She made sure of it. Looking away first was an apology and leavi
 
 But she didn't leave either. Not for a while. And that — the not-leaving, the sitting down on the step — was the most honest thing she'd done in years, and she did it where he couldn't see, which was the only way she knew how to be honest yet: in the dark, on the stairs, with her hand on the cold wall and a melody she half-knew coming down through the boards, letting herself, for the length of one track, simply want the thing she had a deadline and a deal and a mother at six o'clock telling her she couldn't have.
 
-*[Chapter Two continues — the Jordan reveal, the no-invoice kindness, the warehouse shoot, and the chip-shop step.]*
+---
+
+## ◆ iii. Listen to the Bit at the End
+
+*Cal*
+
+He told her about Jordan on a Tuesday, which he had not planned, which he had in fact spent five years planning never to do with anyone, and the way it happened was so small that he didn't see it coming until it had already happened — which was, he'd think later, the only way it ever could have happened, because anything he saw coming he could lock, and the whole point of Jordan was that Jordan was the one thing he could never quite get the door shut on.
+
+They were working late, too late, the session overrunning because Knox had sent eleven voice notes of new ad-libs and Cal was chopping them at the desk while Ella sat cross-legged on the floor three feet away building the inner-sleeve artwork in real time, her laptop throwing blue light up onto her face the way the streetlamp threw orange across the launderette floor she'd never described to him but that he'd somehow built a picture of from the shape of her. And she was humming.
+
+Under her breath. Not to anything. Not to the Knox track, which was in a different key — just a melody, idle, the way people hum when they've forgotten they're not alone, when the work has taken the front of the mind and left the back of it to wander.
+
+Cal's hands stopped on the desk.
+
+"What's that," he said.
+
+"What's what?"
+
+"What you're humming."
+
+Ella looked up, genuinely surprised, not having known she was doing it. "I don't — nothing. It's just a thing. I don't even know where it's — my brother used to —" she frowned, chasing it. "It's nothing. A nursery thing, maybe, from when we were small. Why?"
+
+But Cal had already gone somewhere else, somewhere five years deep, because the melody she'd been humming — idle, to no one, while building the inside of an album sleeve — was four notes that climbed and one that fell. Not the same. She couldn't have known the same; the buried version was pitched and chopped and four feet down where the body finds it before the ear does. But the *shape*. The exact shape. The reluctant rise and the small heartbreak of the drop. The bones of the thing he'd built his whole secret life around, hummed by accident by the one living person he'd let into the room, and the awful intimate coincidence of it — that she'd carried some cousin of his brother's melody in her own body since she was small, that the shape had been waiting in her too, that the centre of gravity had been *in her* the whole time — undid something in Cal that had been holding, white-knuckled, for five years and three months.
+
+"Cal?"
+
+"The voice," he heard himself say. His own voice sounded far away. "In the track. The deep one. The one you keep asking about. You asked who it was."
+
+She closed the laptop. The blue light went out. She didn't say anything. She'd learned, he'd noticed, exactly when not to say anything, which was a skill almost no one had, which was the rarest skill there was — the discipline to let a silence stay open instead of rushing to fill it, to hold the door without pushing on it.
+
+"It's my brother," Cal said. To the desk. To the dark window. To the city tumbling on below, indifferent, full of people each carrying their one unbearable thing. "Jordan. He's — he was. Six years older. He's the reason I make any of this. He used to make beats in a box room when I was a kid and I'd sit on the floor while he did it, where I wasn't allowed, and he was —" Cal's voice was very level, the dangerous level, the level that meant the opposite of what level usually meant "— he was so much better than me, Ella, you have to understand that, I'm good but Jordan *heard things.* He'd play me a kick and say 'listen under it,' and there'd be a whole note that wasn't being played, that your body played for itself in the gap, and he'd watch my face until I got it. 'That's the whole game, little man. Anyone can play you a note. The trick's making them hear the one you didn't play.'" He stopped. Started again, because if he stopped now he'd never. "And my dad's a rugby man. Played second row, broke himself, decided his sons were going to do it properly. And I was good at the rugby, so I got the —" *the nod*, he almost said, and didn't, because the nod was a whole other locked room "— I got picked. The useful son. And Jordan wasn't. Jordan was good at the thing my dad couldn't see the use of. And my dad called it a waste. To his face. For years. *There's no living in that. Look at your brother.* Look at me. The one who picked the nameable thing."
+
+The studio was completely silent. Even the heater seemed to be holding its breath. Ella sat on the floor in the dark, not moving toward him, and he was grateful for it with a gratitude that frightened him, because if she'd crossed the room and held him in that moment he'd have come apart, and instead she did the one exact right thing, the thing almost no one alive knew how to do: she stayed where she was and let the weight of it sit in the room without trying to lift it off him too soon.
+
+"And Jordan didn't fall apart loud," Cal said. "That's the thing people don't understand. He fell apart *quiet.* He got smaller. He stopped playing me stuff. He drove further and further for sessions, chasing the thing the box room couldn't give him and my dad never would — Leeds, Sheffield, once Bristol — tired all the time, they said tired, and one night he was coming back from Leeds, late, the road was wet, and —" Cal looked at his own hands on the desk like they belonged to someone else. "I was sixteen. I was asleep. He'd sent me a voice note at quarter past eleven. 'Listen to this, Cal, listen to the bit at the end, I think I cracked it, tell me I cracked it.' And I didn't —" his throat closed and he made it open "— I was at training, and then I was tired, and then it could wait, because everything could always wait, because I was sixteen and he was permanent. Two days. I didn't listen for two days. And by the time I opened it he'd been gone for —" He didn't finish. There was no end to that sentence that he had ever found.
+
+Ella didn't say *I'm sorry.* She didn't say any of the things people said, the things that made grief about the comfort of the person witnessing it. She said, very quietly, after a silence she let run as long as it needed: "And the buried track. The voice four feet down. That's the voice note."
+
+"It's the last thing he ever sent me. I never replied. So now —" Cal's voice cracked clean down the middle and he let it, in the dark, with her, for the first time in five years "— so now I put a piece of it in everything I make. Buried so deep no one can hear it, so deep it can't be taken, so deep my dad could never find it and be destroyed by it, because if my dad ever knew I was still doing the thing he thinks killed his other son — the day my dad hears my name on a track is the day I lose the only parent I've got left, and I'm not — I lost Jordan, I can't —" He stopped. Breathed. "I've put my brother in a quarter of a million strangers' headphones and not one of them knows they're carrying him. They play him on buses. They fall asleep to him. It's the only grave I could give him that my dad can't visit and ruin and that the world can't take, because the world doesn't even know it's there. That's the secret, Ella. That's the whole secret. I don't hide my name to protect a rugby career. I hide it because my name on that music is a loaded gun pointed at the last of my family, and I have been very, very careful, for five years, never to let anyone near the trigger."
+
+For a long time neither of them spoke. The rain came down. The city carried its millions of unbearable things north and south through the dark.
+
+"Cal," Ella said at last. "Thank you. For trusting me with that. I know what it costs to hand someone a loaded gun and call it trust."
+
+"I didn't decide to. You hummed his melody. It just —"
+
+"You kept going," she said. "After the humming. You didn't have to keep going. That was the decision. The humming was an accident. The rest was you, choosing, in real time, to let one living person listen under the kick." She uncrossed her legs and got up, slowly, and crossed the room — and she didn't hug him, she'd read that right too, she came and stood beside him at the desk and put her hand flat on the wood next to his, not touching, just there, a thing in the world that was on his side, and the gesture was so exactly her mother's hand on the midnight table that she didn't know she was doing it and Cal didn't know where it came from but it reached all the way down. "I'm not going to tell you to put your name on it," she said. "People are always telling me to be louder about who I am, and they mean well, and they don't understand that visibility isn't free, that some of us know to the penny what it costs. You know exactly what it costs. So I'd never. But I'm going to ask you one thing, and you can say no."
+
+"Ask."
+
+"Let me hear it. The actual voice note. Not the buried version — the real one. The bit at the end. The thing he wanted you to listen to."
+
+Cal looked at her. Five years he'd carried the voice note. Five years he'd played the encrypted version, the safe version, the one where Jordan was hidden so deep he was un-loseable and also, finally, unheard. No one had ever asked to hear the actual thing. No one had known there was an actual thing to ask for. She'd reverse-engineered its existence from a melody she'd hummed by accident and a hand that went to a file and stopped, and now she was asking — not to fix it, not to make it about her, not for the story — just to do, five years late, the thing a sixteen-year-old hadn't: to listen.
+
+His hands weren't steady. He got out his phone. He found the thread that said **Jords** with the photo of the stupid face in the car. He found the voice note, 0:47, the little mountain range he knew by heart and hadn't let make a sound in over a year. He looked at Ella once. She nodded — not pushing, just there, the hand on the wood.
+
+He pressed play.
+
+A laugh first. Jordan's laugh, bright and alive and completely unguarded, twenty-two forever. *"Cal, bro — listen, listen to this bit at the end, I think I cracked it, tell me I cracked it, man—"* And then the music. Rough, unfinished, recorded off a monitor in a box room or a hired room in Leeds, a little distorted — four notes that climbed and one that fell, the shape Ella had hummed an hour ago without knowing, raw and unmixed and so full of a person who was certain he had all the time in the world that it filled the studio like weather, like light, like a third presence standing in the room with them in the dark.
+
+It ended. The silence after it was a different silence than any that had come before.
+
+"He cracked it," Ella said softly. Not to Cal. To the room. To the bit at the end. To a boy in a frozen car. "Tell him he cracked it."
+
+And Cal Vance, who had not let another human being watch him cry since he was sixteen years old, who had built an entire self out of stillness precisely so that no one would ever see the rooms inside him, put his head down on the desk in the unmarked studio above the vintage shop — and Ella Savage-Oluwa stood beside him with her hand flat on the wood, not touching, just *there*, on his side, the midnight-table hand, the not-crying breath she'd inherited now spent on letting someone else finally cry — and she did not lift the weight off him too soon, and she did not make it hers, and she did not say a single one of the wrong things.
+
+She just stayed. On the step. In the dark. Listening under the kick.
+
+She left an hour later, and in all that hour neither of them had touched the other, not once, not a hand, not a shoulder — and it was, by a distance that astonished them both, the most intimate night of either of their lives.
+
+*[Chapter Two continues — the no-invoice kindness, the furnace under the lid, the warehouse shoot, and the chip-shop step at three a.m.]*
