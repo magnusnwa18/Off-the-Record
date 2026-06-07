@@ -4,6 +4,8 @@
 
 This repository is a novel: **_Midnight in Manchester_** — a dual-POV new-adult romance (Off-Campus energy, moody British aesthetic) set against elite university life in Manchester and the city's underground music scene. Heroine **Eleonora "Ella" Savage-Oluwa** (21, stylist/creative director); hero **Callum "Cal" Vance** (22, academy fly-half secretly ghost-producing as "V").
 
+> **This book was produced with a reusable system: see [`framework/`](framework/README.md) — "The Novel Engine".** It captures the repeatable method (spec → architecture → bible → plan → draft → revise) and the quality rules used to build this novel. To start a *different* book of the same quality, copy `framework/STORY-SPEC.template.md`, fill it in, and follow `framework/METHOD.md` (or run `framework/scaffold.sh` to spin up a fresh project). `framework/STORY-SPEC.example.md` shows this novel's spec as a worked reference.
+
 ---
 
 ## ⚑ Use these skills (mandatory)
