@@ -272,6 +272,34 @@ Outside, over Manchester, the sky was the same orange Ella had sat under in Lewi
 
 ---
 
+## ◆ vi-b. Six O'Clock, After
+
+*Ella*
+
+The six o'clock call changed after the sink, which Ella had not expected, because she'd braced for it to get worse — for the daily dread to curdle into a daily argument now that the truth was out. Instead it got *quieter*, and the quiet took some getting used to, the way a noise you've lived under for years leaves a ringing when it stops.
+
+Her mother called at 6:02, as always — never 6:00, never 6:05 — and the first few days after the party there was a stiffness, a feeling-out, both of them walking a floor that had shifted. But on the Wednesday her mother said, near the end, in the careful voice she used for the things that cost her, "I showed the piece to Dr. Adeyinka. At the surgery. The culture website, with your name." A pause. "She did not know what creative direction was either. So I explained it. I found I could explain it, Eleonora. I had listened, at the party, when you showed me, more than you think. I explained it correctly and she was impressed and I was —" the smallest pause, the hardest word in her mother's whole vocabulary "— I was proud. To be able to explain my daughter's work and have it be a real thing with a real name. So." The voice retreated back to safe ground, fast, before the softness could be caught. "I still think a graduate scheme would not have hurt. Keep the door open. But I explained it, and I was proud, and you should know that, in case you think I only worry. I worry *and.* It is always *and*, with mothers. Worry and proud. Both. Eat something."
+
+And Ella sat in the launderette-warm dark holding the phone after the line went dead and understood that her mother had just done her own version of the sink — cracked the surface, shown the *and* underneath the worry — and that the truth told at the kitchen table had not detonated the relationship but recalibrated it, made it, fractionally, more real, exactly as Cal had promised: *lighter, even when it doesn't go badly, especially then.* The six o'clock call was no longer a daily performance of the easy daughter for the worried mother. It was, just barely, beginning to be two adults who told each other slightly truer things. It was not fixed. It was not soft, exactly. It was *and.* Worry and proud. It was the most her mother had ever given her, and Ella took it without flinching, and added it to the small growing pile of weights she was learning to let other people help her carry.
+
+---
+
+## ◆ vi-c. The Father, Lingering
+
+*Cal*
+
+His father didn't drive straight back to London after the match. That was the thing that undid Cal, quietly, days later, when he let himself think about it: Gareth Vance, who ran his life on schedules and motorways and the economy of a man who'd never wasted a Sunday, *lingered.* Stayed over. Came to the Monday recovery session and stood at the rail in his good coat watching his son ice-bath and stretch, and afterward took Cal for a breakfast that wasn't about breakfast, the way Webb's coffees weren't about coffee, except his father had no relish in him, only the heavy unpractised effort of a man trying to say a thing his whole life had trained him not to say.
+
+"That second half," his father said, over a fry-up he barely touched. "I keep thinking about it. Where it came from." He turned his fork over. "Your brother had a thing like that. Not in rugby — Jordan couldn't catch a cold, God love him." A rough sound that might have been a laugh, the first time in five years Cal had heard his father say Jordan's name without it being an accusation or a grave. "But he had — a thing. A way of knowing where something was going before it got there. In the music. I never understood it, the music, I thought it was —" the old word rose, *waste*, and Cal watched his father, with visible effort, set it down unsaid for once "— I thought it was a road to nowhere. But he had the *thing*, your brother. And on Saturday, second half, you had it too, and for a minute up in that stand I —" Gareth Vance stopped, and his jaw worked, and he looked out the café window at the wet Manchester street, and said, very low, to the glass and not to his son, "for a minute I thought I was watching Jordan. Same thing. Different game. The knowing-where-it's-going thing. And I didn't know whether to —" he didn't finish. He couldn't. He picked his fork back up. "Anyway. The clubs. Webb says it's serious. It's everything we worked for, son. Don't — just don't lose it."
+
+And Cal sat across from his father with the truth roaring in him — *Dad, you DID watch Jordan, you watch him every time I play, the thing you saw is the thing Jordan taught me in the box room you never once climbed the stairs to, it's the SAME thing, the music and the pass are the same thing, and I make music, Dad, I'm V, the thing you grieve and the thing you're proud of are one thing and I am one person and I've been cutting myself in half for five years so you'd never have to see it* — the truth right there, his father having just, unprecedentedly, *opened the door from his own side*, said Jordan's name with love, named the thing, all but invited it —
+
+And Cal said, "I won't lose it, Dad."
+
+And the window stayed open, and he didn't climb through, again, because his father had cracked the door an inch and an inch was not the same as ready, and because the contract was right there and he could not bear to be, in the same week his father first said Jordan's name with love, the son who turned that into the day he learned the truth. *Soon,* Cal told himself, the coward's word, the word that had cost Jordan two unanswered days. *Soon, on my terms, when the contract's signed, when there's less to lose.* Not knowing the window was already closing faster than his courage was growing, that *soon* was the most expensive word in his vocabulary, that he was doing the exact thing he'd done at sixteen — *I'll reply to the voice note later, it can wait, he's permanent* — and that later, with the people you love, is the one thing that is never, ever guaranteed.
+
+---
+
 ## ◆ vii. The Show Takes Shape
 
 *Ella*
@@ -326,4 +354,24 @@ But that was the reckoning. On Sunday night there was only the studio, and the o
 
 ---
 
-*That was Chapter Three — Two Cities. Two families held up to the light: one that says* show me, *one that says* don't you dare lose it. *A daughter who set her weight down at a sink; a son who carried his to a rail and back; a best friend claimed in a car park; an artist who chose to be a true thing out loud; a rival who named the difference between the front wall and the back. And underneath all of it, the window — closing — and the three words finally said in lamplight before the fall. The catch has stopped building. It is about to start* falling. *Continues in Chapter Four — Reckoning.*
+## ◆ x. The First Tremor
+
+*Ella*
+
+The catch announced itself, as catastrophes do, in an inbox, on an ordinary Tuesday, dressed as good news.
+
+Two emails, the same morning, twelve minutes apart, and Ella would think of them later as the two ends of the trap closing — though that Tuesday they looked like the two best things that had ever landed in her life.
+
+The first was from a name she'd had in a reference folder since she was sixteen: **Imogen Clarke-Bayo**, who ran the most respected creative studio in London, who did the campaigns and the brand films and the fashion-house work Ella had been screenshotting for years, and who had — Ella read it three times to be sure the words meant what they said — *seen the Knox identity work, found everything you've made, and would like to meet about a role.* A real one. Not an internship. A seat. *Take the train down, my treat, let's talk about your September.* Ella sat on the launderette floor with the dryers tumbling and felt the want rise so hard and clean it frightened her — the answer to six o'clock, the proof in writing, the thing she'd come to Manchester at eighteen to make possible, arriving in a single email from a woman whose taste she trusted more than her own.
+
+The second email, twelve minutes later, was from Sasha. Cheerful. Cc'ing the label. *Great news — there's real momentum behind a "Who is V?" feature; three outlets are interested and we think a managed reveal in the next few weeks could double the album's reach and make stars of everyone attached, YOU especially, Ella — the eye who built the ghost's world. Let's talk timing. This is the moment.*
+
+And Ella sat very still on the floor in the warm with both emails open, and the cold tenant who lived under all her hopes did not even need to speak this time, because she could see the whole shape of it at once, the way she saw the shape of a campaign before she built it. The two emails were not two pieces of good news. They were one trap with two jaws. Because Imogen's offer — the size of it, the *September*, the seat — would be made enormous by exactly the thing Sasha was describing: the supernova of a "Who is V?" reveal, the album going huge, Ella's name lifted on the back of the story breaking. Everything she wanted was suddenly, sickeningly, *downstream of Cal's exposure.* The bigger her break, the more it required the secret she'd sworn to protect to detonate — and Sasha, who built stories the way Ella built worlds, had arranged it so that Ella's deepest ambition and Cal's deepest fear were now pointed directly at each other, with Ella holding the only trigger that could fire both, and no clean way to want her own future that didn't cost him his.
+
+She didn't tell Cal that night. (Of course she didn't. She gave him one more clean morning. The old reflex, the one she'd promised never to use on him, choosing the familiar shape — *I'll carry this alone so you don't have to feel it yet* — not knowing that the carrying-it-alone was the very fault line the whole thing would crack along.) She closed both emails. She put the phone face down, the way he always did. And she sat in the warm tumbling dark with the trap closed around her future and his, knowing only that the window everyone kept talking about had just slammed from *closing* to *closed*, that the catch had stopped building and started to fall, and that whatever happened next would not happen on anyone's terms but Sasha's — in the worst order, at the worst time, exactly as they had both, all spring, been afraid it would.
+
+The two cities had held, all weekend. Two families, two truths, two brave sentences said in a kitchen and a car park and a lamplit studio. But a third city was coming now — the one made of inboxes and outlets and due-diligence teams and a fixer's smile — and it did not care about brave sentences, and it was already, that Tuesday, on its way.
+
+---
+
+*That was Chapter Three — Two Cities. Two families held up to the light: one that says* show me, *one that says* don't you dare lose it. *A daughter who set her weight down at a sink; a son who carried his to a rail and back; a best friend claimed in a car park; an artist who chose to be a true thing out loud; a rival who named the front wall from the back. The three words said in lamplight — and then, twelve minutes apart, the two emails that close the trap. The catch has stopped building. It is* falling. *Continues in Chapter Four — Reckoning.*
