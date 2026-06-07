@@ -11,9 +11,9 @@
 |--------:|-------|-------:|--------:|--:|--------|
 | 1 | Collision | (natural) | ~30,600 | ✅ | **COMPLETE** at natural length (19 scenes; party → reveal → deal → first week → match-week). |
 | 2 | Orbit | (natural) | ~14,500 | ✅ | **COMPLETE** at natural length (11 scenes; argument → Jordan reveal → no-invoice → furnace → first kiss → stolen weeks → first crack → the turn). |
-| 3 | Two Cities | ~natural | 0 | 0% | **In progress** — South London / mother's 50th, the rugby machine, the match where both worlds collide. |
-| 4 | Reckoning | ~natural | 0 | 0% | Skeleton ready (old ch.11–15) |
-| 5 | Midnight | ~natural | 0 | 0% | Skeleton ready (old ch.16–19) |
+| 3 | Two Cities | (natural) | ~7,500 | ✅ | **COMPLETE** at natural length (6 scenes; train south → the house → "show me" → the step → the match → the bomb you carry). |
+| 4 | Reckoning | ~natural | 0 | 0% | **Next.** Skeleton ready (old ch.11–15): the catch falls — Sasha presses, the London offer, the leak, the black-hour break. |
+| 5 | Midnight | ~natural | 0 | 0% | Skeleton ready (old ch.16–19). |
 
 > **Decision (author, this session):** chapters run to their **natural strong length**, not a forced 45k each. Priority is a complete, well-paced NOVEL. Ch.1 & Ch.2 are done; drafting now advances front-to-back through Ch.3–5.
 
