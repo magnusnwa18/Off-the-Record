@@ -90,4 +90,74 @@ And his father made a sound Cal would hear for the rest of his life, a sound wit
 
 *Don't come to the house.* The thing he'd spent five years and one buried brother's voice avoiding had happened in a single Wednesday morning, on someone else's terms, in the worst order, and it had cost him exactly what he'd always known it would cost him.
 
-*[Chapter Four continues — the ghost thing, the cruelest text, the black hour; then Ella's side, and the break.]*
+## ◆ iv. The Ghost Does What Ghosts Do
+
+*Cal*
+
+He didn't go back to training. He didn't go to the studio — the studio was burned now, photographed, a location, the one room where he'd been whole turned into evidence. He walked. Hours, through the grey city, hood up, phone off, past the warehouse where they'd shot the single and the chip shop in Mayfield and the canals he'd shown her at midnight, and somewhere in the walking the cold narrow clarity hardened into the thing he'd built the ghost out of when he was sixteen: *if you're already gone, you can't be left.* The ghost was safe. The ghost had done the leaving first.
+
+So when he finally turned his phone on, at dark, it lit up with everything — missed calls, texts from the lads, from Knox, from Sasha (*we can fix this, call me, we control the next part of the narrative*), from Webb (*call me immediately, we manage this NOW, why didn't you TELL me*), and from Ella. Eleven messages from Ella. *are you okay. please answer. Cal it wasn't me, please believe me it wasn't me. where are you. please. I think I know how to fix it. please call me.*
+
+He looked at her name eleven times and did the ghost thing.
+
+Because she'd told him about the offer two days ago — no. She hadn't. She'd been holding it; he'd find that out later; that night he only knew she had an offer, that everything she wanted was downstream of his reveal, that she'd said as much, *I can't win clean.* And now the reveal had happened, from a small blog that breaks things to spite the people managing them, the kind of outlet you'd leak to if you wanted the reveal but didn't want it traced to a fixer — and her offer was about to go supernova. The timing sat in his wrecked mind and rearranged itself into the worst possible story, because that was what wrecked minds did, they were just bad producers, chopping the truth into the cruelest order: *she said she couldn't win clean unless the reveal happened. The reveal happened. And now her offer goes supernova.*
+
+He knew, even thinking it, that it was the wrecked-mind version. He knew her. He knew she'd kept his secret when Sasha offered to make her famous, knew she'd lied to Imogen's face about who he was, knew she'd texted *it wasn't me* before he'd accused her of anything — which is what innocent people do, and also what guilty people are smart enough to do, said the cold ghost, and Cal was too far gone, too sixteen, too *don't come to the house* to tell the truth from the thing that would let him do the leaving first.
+
+He texted her back. One line. The cruelest order he could chop it into.
+
+*Everything you wanted is downstream of this. Congratulations. You win clean after all.*
+
+Then he turned the phone off again, before she could reply, before she could be innocent at him, before she could see him — because being seen was the whole danger and he was done with the danger — and he walked back out into the city that wasn't theirs anymore, the ghost again, safe again, already gone, and told himself it was better this way, the way he'd told himself everything for five years, and almost believed it, which had always been the problem.
+
+The catch had everything now. It had taken the morning too.
+
+---
+
+## ◆ v. The Knife in the Soft Place
+
+*Ella*
+
+She read his text in the launderette-warm flat with the dryers tumbling, and she read it four times, and each time it took something else out of her.
+
+*Everything you wanted is downstream of this. Congratulations. You win clean after all.*
+
+He thought she'd done it. After everything — after Jordan, after the buried track, after *I love you, for the record* in the lamplight three nights ago — he thought she'd leaked him. He'd done the cold thing, run the odds on her loyalty against her ambition and decided the ambition won, because that was how he was built, he read odds, and the odds said the girl whose whole career was downstream of the reveal had made the reveal happen.
+
+The cruelty of it was surgical. *Congratulations.* He knew exactly where she was softest — the fear that underneath the loyalty she was, in the end, just ambitious; the thing her mother had named, *a hobby you're calling a career*; the private worry she'd never said aloud, that maybe she really would step on anyone to prove the thing she was could be a life. He'd found that exact place and put the knife in it, on purpose, because hurting her was the fastest way to make her leave first — the ghost thing, *if you're already gone you can't be left*, burning it down so the loss would be his choice instead of his fear.
+
+She understood it completely. And understanding it didn't help at all, because the thing about being understood-out-of-cruelty is that it still cuts; the knife doesn't care that you can see the hand.
+
+Priya came home to find her on the floor in the warm, not crying, which was worse, the strong-one not-crying she'd learned from her mother at a midnight table. "I saw the piece," Priya said carefully, lowering herself down. "The whole — is that — Ella, the producer, V, that's *Cal*? Tom's *Cal*? You've been —" the pieces landing on her face, three years of friendship recalculating. "All term. The closed door. The quiet. It was *him.* You've been with him all term and you couldn't tell me because —"
+
+"Because it wasn't mine to tell," Ella said, flat. "It was his. His whole family's. His dead brother's. I couldn't, Pri. I wanted to. You're the first call, I promised you that, and I couldn't make it, and I'm sorry."
+
+"His *dead* —" Priya stopped, recalibrating again, the size of it. "Okay. Okay. And the leak — does he think —" She'd read the screen over Ella's shoulder. Her face went from hurt to fury in one motion. "He thinks *you* did it? After you kept it all term? I'll kill him, I'll actually —"
+
+"Don't." Ella's voice was a flat calm that frightened them both. "He's not — he's doing the thing he does. He lost his dad this morning, Pri. His dad said *don't come to the house.* And his whole self is built on the idea that if he leaves first he can't be left, so he's burning me down before I can — it's not about me. I know it's not about me. He's pointing it at the only person who'll stay and take it, because he can't be angry at the blog or at Sasha or at his dad or at his brother for dying, so it's me. And I told him I wouldn't be the place he puts the thing he's too scared to feel, and I did it for my whole family for twenty years, and I'm not —" her voice finally cracked, one clean fracture "— I'm not going to be it for him. Even now. Even like this."
+
+"So what do you do," Priya said softly.
+
+And there it was — the choice Imogen had named in a Soho coffee shop. *Most people never find out who they are because they never have to choose between what they want and who they want to be.*
+
+Because here was the brutal arithmetic, laid bare now that the worst had happened: Cal had cut her loose. He thought she'd betrayed him. The smart thing — the strong-one thing, the protect-yourself thing, the thing her mother would counsel and her ambition would thank her for — was to take the offer. Sign it. Let the supernova carry her to London and the seat at Imogen's studio and the answer to six o'clock. Cal didn't want her anymore; he'd made that surgically clear. Her loyalty had already nearly cost her the offer's full size; why should it cost her again now, when the person she'd been loyal to had just knifed her on his way out the door?
+
+She could hear the argument perfectly. It was a good argument. It was, in its way, the same one her whole family had made her whole life: *be safe, protect yourself, the world will not protect you, build something no one can take.*
+
+And she found, on the floor in the warm with the worst day of her life tumbling around her, that she didn't want it. Not the safe version. Not the win that cost Cal his terms. Not the seat she'd get by riding the supernova of his betrayal. Because the thing she'd realised on the train outside Stockport was still true even now that he'd hurt her: she would not build her career on his ruin, and she would not let Sasha be the one who decided when his life detonated — and now, worse, the detonation had already happened, on the cruelest terms, and if she took the offer she'd be cashing in on it, the eye who got famous off the ghost's exposure, exactly the thing she'd sworn she wouldn't be.
+
+"I'm going to do the thing I was going to do anyway," Ella said slowly. "Before the leak. I had a plan, Pri — I texted Sasha, I was going to take the story away from the people telling it. I'm still going to. Not for him; he's made it clear I'm not doing anything for him. For *me.* Because I refuse to let the version where I'm the villain be the version that's true, and the only way to make a different version true is to go and build it, the way I build everything." She got up off the floor, and the strong-one settled onto her — except different this time, not the exhausted mask but a thing she was choosing, the way Cal had chosen to play the second half loose. "And maybe it fixes things with Cal and maybe it never does. Maybe he never believes it wasn't me. Maybe he stays a ghost forever and I watch from London. But I'm not going to let the last true thing I did be carrying his weight in secret all term and getting knifed for it. The last thing I do in this is going to be *loud.*"
+
+"That's the most you thing you've ever said," Priya said. "What are you actually going to do?"
+
+Ella picked up her phone. Sasha had replied to *let's get coffee* an hour before the leak — *Always! When?* — not knowing the blog was about to take the reveal out of her hands too, not knowing her carefully seeded story had been stolen by a spiteful outlet and her own control was as gone as everyone else's.
+
+"Sasha built a story where me and Cal had to be enemies so one of us would crack and the reveal would come. She's a producer, basically — she chops the truth into the order that serves her. And the thing about a producer," Ella said, and her eyes did the reading thing, except now three moves ahead, "is that anyone can do it. You just need command of the elements. And I've got an element nobody else has. I know who V actually is. I know about Jordan. I know what the buried track is and whose voice is in it. I know the *real* story — the one that's a thousand times bigger and truer than 'rugby boy has secret hobby.' The blog only got the shallow version, the betrayal version. So there's still a deeper version to tell." She looked at Priya. "The question is whether I've got any right to tell it. Because it's not my secret. It's his. And telling someone's deepest truth to save them is just betraying them in a nicer font — *unless* —" she stopped, the plan finishing in her head, and it was good, and it was terrifying, and it required the one thing she couldn't manufacture: "unless *he* tells it. Unless I build him a stage and a moment and a world so safe and so true that the ghost decides, on his own, to step out of the corner and cross the room. Because that's the only version where it's not me unmasking him. It's him taking off the mask. I can't make him do it. I can only build the room. The way I built the room at the party I didn't know I was building. The way I always build the room."
+
+"And if he won't step out?"
+
+"Then I built a room for nobody," Ella said. "And I'll have found out who I am anyway. Which Imogen says is the whole point, and which I'm starting to think is the most expensive thing there is."
+
+She sat back down. She opened the laptop. The blue light came up onto her face the way it had the night Cal told her about Jordan, and outside the rain came down on the grey glittering city, and Eleonora Savage-Oluwa — the strong one, who had never once been strong for herself — began to build the most important world of her career for an audience of one terrified ghost who'd just told her she'd won, and might never know that the only thing she was actually trying to win was him.
+
+*[Chapter Four continues — the low point, the B-plots in the blast radius (Tom, Knox, the degree show), Cal's reckoning with his father and Jordan's room, and the bottom of the black hour.]*
