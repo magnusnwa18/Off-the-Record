@@ -54,6 +54,28 @@ Her father looked at the phone for a long time. He was not a man who said things
 
 It was not approval, exactly. Her mother said, going back to the dishes, that she still thought a graduate scheme behind her would not have hurt, and that creative people died poor, and that Ella should at least keep the option open, and Ella let her have it because she'd won the only thing that mattered, which was *show me* instead of *no.*
 
+It was Tioluwa who came to find her, later, when the kitchen had emptied and Ella was sitting on the back step in the cold with a plate she wasn't eating. Seventeen, sharp, watching everything the way Ella had watched everything at seventeen — except Tio had grown up watching *Ella*, which Ella had never once considered, that she'd been someone's load-bearing wall the whole time she'd thought she was just surviving.
+
+"You scared me in there," Tio said, sitting down beside her, pulling her sleeves over her hands against the cold. "I've never seen you — you don't crack. Ever. You're the one who doesn't crack. And you cracked on purpose, at the sink, in front of everyone. To get Mum to say *show me.*" She looked at her sister with something between awe and accusation. "Was that real or was that a move?"
+
+"Both," Ella said, surprised into honesty. "That's the thing nobody tells you about being the strong one, Tio. After a while you can't always feel the difference between what you mean and what you're performing, because you've been performing fine for so long that fine became a skill instead of a feeling. Tonight it was real *and* it was a move. I cried because I meant it and I let everyone see because I needed Mum to —" she shrugged. "Both. That's not lying. That's just being someone who learned to use her own true things as tools because no one was ever going to use them *for* her."
+
+Tioluwa was quiet for a while. The garden was dark, the party-noise muffled behind the kitchen door, the South London sky orange the way every sky Ella loved was orange.
+
+"I'm not going to be the strong one," Tio said eventually, fierce, decided. "You did it so I don't have to. You know that, right? You went first, you took the law-versus-art fight and you *won* it tonight, sort of, and now when I do something mad in three years Mum's going to be — she's going to have a script for it. Because of you. You're like the —" she searched for it. "You're the one who walks into the minefield first so everyone behind you knows where the mines are."
+
+Ella looked at her little sister and felt something shift in her chest, an old weight redistributing. Because she'd spent her whole life thinking the carrying was a tax, a thing done to her, the eldest's unfair sentence — and here was Tioluwa telling her it had *bought* something, that the strength she'd resented had cleared a path, that the wall she'd been for the family had been load-bearing in the good sense too, holding up a roof under which her siblings got to grow into people who didn't have to crack on purpose at sinks.
+
+"Don't walk into minefields," Ella said, and put her arm around her sister, and Tio let her. "But — yeah. I know where some of them are now. Ask me first. That's allowed. You're allowed to ask me first."
+
+"Is he nice?" Tio said, into her shoulder.
+
+"Is who nice?"
+
+"Whoever you keep checking your phone for. You've checked it eleven times since dinner. You think I don't watch you? I learned watching off you." Tio grinned up at her, wicked, seventeen. "Is he nice?"
+
+"He's complicated," Ella said, which was the truest answer, and Tio said "that means yes and Mum's going to hate it" with enormous satisfaction, and the two of them sat on the cold step under the orange London sky and laughed, two sisters, one who'd gone into the minefield and one who got to walk the cleared path, and it was, Ella thought, the lightest she'd felt at this house in years.
+
 On the train back to Manchester the next day she texted Cal: *I told them. It went — not terribly. My dad wants them to spell the whole name right.*
 
 He texted back immediately, which he never did, which meant he'd been waiting: *Both names. Savage and Oluwa. I'll make sure. Proud of you.*

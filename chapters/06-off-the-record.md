@@ -64,4 +64,18 @@ It ended. The silence after it was a different silence than before.
 
 And Cal Vance, who had not cried in front of another human being since he was sixteen years old, who had built an entire self out of stillness so that no one would ever see the rooms inside him, put his head down on the desk in the unmarked studio above the vintage shop, and Ella Savage-Oluwa stood beside him with her hand flat on the wood, not touching, just *there*, and let him.
 
+But before she left, she did one more thing, and it was the thing that decided him, though he wouldn't understand that for weeks.
+
+She asked about the rugby.
+
+Not the way people asked about the rugby — *are scouts really coming, will you go pro, what's it like to be the one they watch.* She asked it sideways, the way she asked the things that mattered. She was at the door, coat on, and she turned and said: "When you're out there. On the pitch. With your dad in the stand and forty thousand people and the whole machine of it. Is any of that yours? Or is it all his?"
+
+And Cal, wrung out, undefended, said the thing he'd never said. "The pass is mine. The one Marsh says is different. When it leaves my hands right, when it hangs in the air exactly as long as it needs to — that half-second, that's mine. Nobody coached that into me. My dad can build the body and Marsh can drill the lines but that half-second where the ball's in the air and it's perfect and I *knew* it would be — that's the same thing as this." He gestured at the desk, the buried track, Jordan. "That's me hearing where something's going to be before it's there. It's the exact same thing as the music. I've never said that out loud. They're the same thing. The pass and the beat. They come from the same place and that place is the only part of any of it that belongs to me."
+
+Ella looked at him for a long moment in the doorway. "Then you're not living two lives," she said. "Everyone thinks you've got two lives — the fly-half and the ghost, the pitch and the desk. But that's not it. You've got *one* thing, the half-second where you hear where something's going, and you've split it into two so that each half can hide from the people who'd take it. The rugby hides from your dad's fear and the music hides from your dad's grief. But it's one thing, Cal. It was always one thing. You're not two people. You're one person wearing two disguises so that nobody — including you — has to look at the one true thing underneath both of them."
+
+She let that land. Then, gently: "That's the loneliest way to live I've ever heard of. And you've made it look like swagger. That's the most impressive part. You've been the loneliest person in every room you've ever walked into and you've made forty thousand people think you're the freest."
+
+And then she said goodnight, and she left, and Cal stood in the studio with the truest description of himself he'd ever heard ringing in the room like a struck monitor, delivered by a girl who'd known him five weeks, who'd seen in five weeks what his father hadn't seen in twenty-two years and what he'd worked very hard to make sure no one would ever see.
+
 She left an hour later, and neither of them had touched the other, not once, and it was the most intimate night of Cal's entire life.

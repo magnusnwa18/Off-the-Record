@@ -38,6 +38,18 @@ Cal gave him the nod. The small one. "Yeah, Dad," he said. "Every week."
 
 And he turned away with the truth still locked in him, and across the emptying stand he found Ella, who had watched the whole exchange from four seats over, close enough to see the shape of it and too far to hear the words, and who knew him well enough to read the shape, and her grin was gone. She'd seen it. She'd seen the door open in his face and seen him close it. She'd seen him have the truth in his mouth and swallow it.
 
+There was one more thing at the stadium, before the studio, that Ella didn't see and Cal didn't tell her about until much later.
+
+As he walked off, after the nod, after *every week, son,* a man fell into step beside him in the tunnel — older, expensive coat, a lanyard that wasn't a club lanyard. Cal clocked him the way he clocked everyone, and clocked the type before the man spoke: agent, or worse than an agent, the kind of man who appeared in tunnels after the kind of game scouts came to.
+
+"Hell of a second half," the man said. "Where'd that come from? First forty you looked like a kid doing his homework. Second forty you looked like —" the man searched for it, and landed, with an instinct that made the back of Cal's neck cold, somewhere too close. "You looked like a musician. You had *time.* Players who've got time, real time, not coached time — they've usually got something else going on. Something with rhythm. You play an instrument, son? Produce? Something?"
+
+And Cal, high and raw and undefended, almost — *almost* — but the wall came down, the daylight wall, automatic, ten thousand reps. "Just rugby," he said, easy, the swagger sliding back over the truth like a shutter. "Just the homework."
+
+The man smiled like he didn't believe it and didn't need to. "Sure," he said. "Whatever it is — protect it. The thing that gives you the time. Everyone'll try to coach it out of you because they can't see it and they don't trust what they can't see. Don't let them." He peeled off toward the corporate boxes. "I'll be watching, Vance. So will people you can't see. That's the level you're at now. No more secrets at this level — that's the only advice that's free. The rest I charge for."
+
+*No more secrets at this level.* It rang in Cal all the way to the car, all the way to the studio, a second bell under the first one, his father's *every week* and this stranger's *no more secrets* tolling against each other, and he understood — the cold clear understanding he usually saved for a defensive line — that the wall he'd built was not going to hold much longer, that the bigger he got the more eyes there were, that a quarter of a million streams and a regional final and a girl who knew everything were three lit fuses and that fuses, in his experience, did not go out on their own.
+
 That night, in the studio, she didn't congratulate him on the match. She let him come down from it, fed him, sat with him, and only much later, with the city dark below and Jordan's four notes playing low, did she say, carefully, the way she said heavy things:
 
 "You almost told him. At the rail. I could see it."

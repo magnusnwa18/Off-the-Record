@@ -56,6 +56,20 @@ The street outside the arch was empty and wet and the rain had stopped and the a
 
 "Worth it." He said it like a man stepping off something. "You keep coming out as worth it."
 
+They walked the long way, the way you walk when neither of you wants to arrive anywhere, down through the dead industrial dark toward the canal, past the backs of buildings that had been mills and were now apartments and bars and the kind of nothing that Manchester did better than anywhere, the beautiful ruined nothing she'd built a whole campaign out of.
+
+"Tell me something true," Ella said. "Since we're off the record. Something you've never said to anyone in daylight."
+
+Cal was quiet for a while, their footsteps the only sound. "I'm scared all the time," he said finally. "That's the thing. Everyone thinks I'm the calm one, the still one, the one who's never rattled — Tom calls me a robot, affectionately. And the truth is I'm scared every single minute. Scared the pass won't come. Scared someone'll find the studio. Scared my dad'll find out. Scared I'll lose the music or lose the rugby or lose —" he stopped. "I made the stillness so no one would see the scared. That's all the stillness is. It's not calm. It's a man holding his breath so the fear doesn't show in his shoulders. I've been holding my breath since I was sixteen." He glanced at her. "Your turn. Something true."
+
+"I don't know how to be looked after," Ella said. "I know how to look after. I'm world-class at it, I could do it in my sleep, I've been doing it since I was nine. But when someone tries to do it back — when you put the heater on before I get there, when the Vietnamese is already here — there's a half-second where it feels like a *threat.* Like being handed something I'll have to pay for. Like a trap. Because in my experience the only reason anyone gives you something is so you'll owe them, and I've spent my whole life making sure I never owe anyone anything, because owing is how you end up carried, and I'm the one who carries." She watched the black canal water. "So when you look after me sideways, the way you do, where there's no debt in it — I have to physically stop myself flinching. Every time. It's the hardest thing I do all week. And you've never once made me feel like I owed you for it. That's the true thing. I don't know what to do with kindness that doesn't come with an invoice. I've never had any."
+
+Cal stopped walking. The canal lay flat and black beside them, the city's orange light broken on its surface.
+
+"Then I'll keep doing it," he said. "The no-invoice kind. Until the flinch stops. However long that takes. You can owe me nothing for the rest of your life and I'll keep the heater on. That's not a trap, Ella. That's just — that's the only thing I've ever wanted to do with the scared. Point it at keeping one person warm instead of at holding my own breath."
+
+And that, more than the kiss that came after, was the moment Ella stopped being able to pretend the deal was just a deal — because no one in twenty-one years had offered her a single thing without a price, and here was a boy offering her warmth with no invoice attached, and the no-invoice was so foreign to her that it undid her more thoroughly than any grand declaration could have.
+
 There was a chip shop three doors down, the only lit thing on the street, open absurdly late, the kind of place that existed entirely to catch people at the exact moment Ella and Cal were having, and later neither of them could explain why they'd ended up in it except that the moment had been too big and they were two people who'd learned to manage big moments by getting smaller and more practical, so they bought chips. Chips at three in the morning, in polystyrene, drowning them in vinegar, sitting on the cold step outside while the city's last buses went past empty and gold.
 
 "This is so romantic," Ella said. "Vinegar. A bin. The bins of Mayfield."

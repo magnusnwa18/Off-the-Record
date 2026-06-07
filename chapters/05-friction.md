@@ -60,6 +60,32 @@ It happened in increments, the way the only real things did. She started staying
 
 He laughed, the real one, the one that took ten years off him, and for a second neither of them said anything and the launderette-warm hum of the studio's old heater filled the gap and Ella was aware, with the part of her that read rooms, that the room had become small and that she was choosing to stay in it.
 
+The trouble was Priya, who knew Ella better than anyone alive, and who had started to notice.
+
+It came out at a pub on the second weekend — a double thing, not a date, Ella was very firm about that, just Priya and Tom and Ella tagging along to a Thursday in the Northern Quarter, and the cruel coincidence of the city being a village pretending to be a city meant that Tom had brought half the rugby lot, and Cal was among them, and the two halves of Ella's life sat at one long sticky table and pretended not to know each other beyond a party three weeks gone.
+
+It was excruciating. It was also, Ella would admit only to herself, thrilling, in the specific way of a secret you're holding under a table.
+
+"So you don't really *know* the producer," Tom was saying to her, earnest, enormous, a pint disappearing into his hand. "The V bloke. Cal reckons nobody does. You just do the pictures."
+
+"I just do the pictures," Ella agreed, not looking at Cal, who was three seats down being still in the middle of the noise, the only still thing at a loud table, exactly as he'd been the night they met.
+
+"Mad job that," Tom said. "Making a song into a *look*. How d'you even —"
+
+"You'd be surprised how much of it Tom understands," Cal said, from down the table, even, easy, the daylight voice. "He picks his boots by which ones make him feel like a different player. That's art direction. He's just doing it to himself."
+
+Tom looked genuinely moved. "That's — yeah. That's exactly it. The green ones make me brave."
+
+"The green ones make you offside," said one of the other lads, and the table went up, and under the cover of it Cal's eyes found Ella's for exactly one second, *we're getting away with it,* and she had to look down at her drink because the thing on her face was not a professional thing.
+
+Later, at the bar, he ended up beside her, the geometry of it engineered so smoothly that she only realised afterward he'd engineered it. He didn't say anything secret. He ordered, and waited, and then, quietly, to the optics behind the bar rather than to her: "You're good in there. With them. They think they're talking to a stranger and they're talking to the person who knows the most dangerous thing about any of us." A pause. "It's the same thing you do with the music. You walk into a room and you see the load-bearing wall everyone else is leaning on without noticing. I've never met anyone who does it as fast as you. It's unnerving. I wanted you to know it's unnerving."
+
+"Is that a compliment?"
+
+"It's a fact. You can decide what it tells you." And he took his round and went back to the table, and Ella stood at the bar holding two drinks and the slow dangerous warmth of having been *seen seeing*, which no one had ever done to her, because she was the one who saw, that was her whole function, the watcher, the strong one, the eye — and he'd turned the eye around and looked back through it, and she did not know what to do with being on the other side of her own gaze.
+
+She told Priya none of this, which was the first lie of substance she'd ever told her, and Priya, who missed nothing, let her, which was its own kind of love.
+
 "Why styling," he said. Not a deflection. A real question, the kind he didn't ask often, because asking gave something away. "You're — I've watched you in that meeting with Sasha. You could run anything. You could be in any room you wanted. Why this one. Your mum know you're doing this instead of —"
 
 "Don't." It came out sharper than she meant. He raised a hand, retreating, and she sighed and softened, because he'd given her a true thing nine days ago and the ledger between them had been running ever since. "Sorry. It's a — my mum thinks this is a hobby I'm calling a career. She wants me on a graduate scheme. Law, finance, something I can say at a dinner party so the aunties nod. And the worst thing is I understand why. They came here with nothing. They built a whole life out of being twice as good and half as visible and they want me *safe*. And I keep choosing the most visible, least safe thing there is, which to her looks like — spitting on the climb."

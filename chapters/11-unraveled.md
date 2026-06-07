@@ -24,6 +24,24 @@ She kissed him over the heavy mugs. "Okay," she said. "The catch can have everyt
 
 ---
 
+There was a Sunday in the middle of those five weeks that Ella would keep for the rest of her life, unspent, the way you keep one note you can't afford to break.
+
+It rained all day, properly, the kind of Manchester rain that isn't an event but a climate, and neither of them had anywhere to be — a rare alignment, his training cancelled for a waterlogged pitch, her deck delivered, the world briefly not asking either of them to be anyone. They didn't go out. They stayed in the studio with the heater on and the high window streaming and made it a whole day, which neither of them had ever done with another person, given a day, a clear one, and just spent it.
+
+He cooked, badly, on the single hob in the corner that was meant for warming takeaway, and she sat on the counter and narrated his failures like a nature documentary, and he retaliated by making her listen to the worst beat he'd ever made, age fifteen, a genuinely catastrophic thing he'd dug out of an old drive, and she laughed so hard she nearly fell off the counter and he caught her, easy, automatic, his hands knowing where she'd be before she fell the way they knew where the winger would be, and they stayed like that, her on the counter, him between her knees, both of them grinning like idiots, and he said, "I've never had a day off in my life. Not really. Even the days off were training for the days on. This is the first day I've ever had that isn't *for* anything," and she said, "Me too," and meant it more than she'd meant most things, because every day of her life had been for something, for the family, for the proof, for the future she was forcing into being, and this one was for nothing, this one was just hers, just theirs, just rain and a bad beat and a boy who caught her without looking.
+
+She fell asleep on the sofa in the afternoon — she who ran on three hours and crashed for twelve, who never let herself be unconscious near anyone because unconscious was undefended and undefended was for people who had someone underneath them — and she woke an hour later under his jacket, which he'd put over her, and he was at the desk working with the volume low so as not to wake her, the lamp on, the city grey and pouring beyond the glass, and she lay there pretending to still be asleep just to watch him, the still one, the magic, working in the half-dark while he thought no one could see, and she understood with a clarity that frightened her that this — not the offer, not the degree show, not the name spelled right — *this* was the thing she'd been trying to build her whole life without knowing it. Not a career. A room where she could be unconscious and undefended and wake up covered.
+
+"You're awake," he said, not turning round. "Your breathing changed."
+
+"You weren't supposed to notice."
+
+"I notice everything. It's the family curse." He turned then, and looked at her under his jacket on the sofa in the grey light, and something moved across his face that she'd never seen on it, something that on a less guarded man she'd have called fear and on Cal she understood was its cousin, *wanting something this much is dangerous, I've made a study of not wanting things this much,* and he said, quietly, "I keep waiting to get bored. Of people. I always get bored. It's why the bit works, the read, the soft landing — I've never met anyone who was still interesting on the second day." A pause. "It's been thirty-five days."
+
+"Is that a compliment?"
+
+"It's a *fact*," they said it together, and laughed, and she got up still wrapped in his jacket and crossed the room to him, and that was the other thing she'd keep — that in the studio she was the one who crossed the room, always, that he'd crossed it first at the party and ever after she was the one who closed the distance, because he'd taught her without meaning to that crossing a room you might lose is the bravest thing a person does, and she'd decided she was done being the one who waited to be reached.
+
 But the catch was already in the building, of course. It was wearing box-fresh trainers and an understated coat and a smile with no eyes in it, and its name was the story, and the story wanted out.
 
 It started small. Sasha began appearing at the studio more — not unusual in itself, she was the label's fixer, the rollout was hers to manage. But she started appearing at the *odd* times. The late times. Once when Ella and Cal were alone, working, sitting closer than colleagues sat, and Ella saw Sasha clock it from the doorway before her professional face came down, and felt the cold settle in her stomach again, the first-sight-of-the-cliff cold.
