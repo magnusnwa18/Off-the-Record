@@ -54,6 +54,10 @@ His phone lit on the desk. Knox: **studio thurs? bringing the team. label want a
 
 Cal turned the phone face down.
 
+He pulled up a new session instead. A clean one. He didn't decide to — his hands did it, the way his hands found the flat pass without consulting him. He laid down a kick drum, slow, a heartbeat at rest. Then a hi-hat that came in late, reluctant, the way he liked them, the way Jordan had taught him without ever teaching him anything. And then, because he couldn't help it, because the morning was still in him and the girl was still in him and the two had got tangled, he reached for the sound of the party — that churning engine of noise — and he built its opposite. He built the still thing at the centre of it. He chopped a vocal he'd recorded off a vinyl crackle months ago, a woman's voice going *oh, oh,* pitched it down until it sounded like someone remembering being happy, and he set it floating over the heartbeat, and underneath all of it, four feet down, buried where no one would ever find it, he laid Jordan's four notes. Climbing. Falling.
+
+He listened back. It sounded like the precise feeling of being seen through and crossing the room anyway. He had not meant to make that. He saved it under a name that was just a date and shut the laptop, unsettled in a way he hadn't been since he was sixteen, because the budget of his attention had developed a line item he hadn't authorised and the line item was a tall girl from South London who'd taken his best move apart on a table and made him laugh for real.
+
 He worked until the light through the high window went from grey to gold to grey again, until his stomach reminded him he hadn't eaten, until the budget of his attention was finally, blessedly spent and there was nothing left over to spend on remembering. He saved the session under its non-name. He turned off the lamp. He stood at the high window for a minute looking down at the wet street and the people who got to be one person each, and then he went back out into the daylight to be Cal Vance, the one they came to watch, and he was so good at it that no one ever asked who was watching him.
 
 Not until Thursday.
