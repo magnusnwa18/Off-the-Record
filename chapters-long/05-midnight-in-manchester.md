@@ -146,4 +146,62 @@ And the *I love you* — the one she'd kept that night in the chapel, the one he
 
 She said it on an ordinary Tuesday in November, in the launderette-warm flat with the dryers tumbling, no occasion, no stage, no four hundred people. He'd done some small sideways looking-after thing — the right food, the heater already on, a deadline he'd quietly taken thirty minutes of pressure off — and she looked up from her laptop, the blue light on her face, and just said it, plainly, the way the truest things get said: *I love you.* And he went still, the counting stillness, and said it back, and it wasn't a grand gesture or a crossed room or a film at a launch. It was two people in a small warm flat above a launderette, neither performing being fine, because they weren't fine — they were something far better than fine — and the *I love you* had been earned the slow way, ten thousand reps, and so when it finally arrived it weighed exactly what a true thing weighs, which is everything, and nothing you have to carry alone.
 
-*[Chapter Five concludes — Epilogue: One Year On.]*
+## ◆ vii. A Rep, Shown
+
+*Cal*
+
+Here is one of the ten thousand, because a summary is a cowardly way to tell you he earned it, and he earned it in moments, not montages.
+
+It was June, after the degree show, before the contract was fully signed, and a journalist — a real one this time, a broadsheet culture desk, not the blog — wanted to do the big piece: *Cal Vance, the fly-half who produces, the secret behind Knox.* The good version. The Webb-approved version, depth and dimension. And the journalist, doing her job, asked Cal in the pre-interview about "the personal stuff, the brother, I gather there's a brother, that's the heart of it isn't it" — and Cal felt the old thing rise, the lock, the ghost reaching to pull the door shut, the instinct to protect Jordan by burying him again, deeper, away from a stranger with a notebook.
+
+And he was alone when the call came — Ella was in London, week two at Imogen's — so there was no one to name it, no one to tell him he was about to do the ghost thing. He had to name it himself. That was the rep. He sat with the phone and the rising lock and he did the thing he'd been practising: he asked himself what the *true* version was, not the safe one. And the true version was that Jordan buried again was Jordan lost again, that the whole disease had been the hiding, that his brother deserved to be *said*, in a broadsheet, with his name, as the gifted producer he was and not a tragic footnote to Cal's story.
+
+"His name was Jordan," Cal told the journalist. Out loud. To a stranger. On the record. "He was better than me. He taught me everything I do, in rugby and in music, the same lesson — listen for the note that isn't played, that's where the feeling lives. He died when I was sixteen and I spent five years hiding him in my tracks because I thought hiding him kept him safe. It didn't. It just kept him secret. So put his name in the piece. Jordan Vance. He cracked it. I want people to know he cracked it." And he hung up and texted Ella — *rep four thousand and something: told a journalist about Jordan. Used his name. On the record. Didn't lock. It got easier, like you said. Like the reps.* And Ella, three hundred miles south at a desk that was hers, read it and pressed the phone to her chest, because that was the whole man right there, the ghost learning to say the names out loud, one rep at a time, even when no one was in the room to make him.
+
+She texted back: *Both names. Spelled right. Jordan Vance. Proud of you. Rep four thousand and something logged.* And then, because she was allowed to now, because they'd earned the lightness: *also it's six o'clock and my mum just explained creative direction to her surgery's entire waiting room, apparently with a diagram. we've created a monster. I love you.* And he read *I love you* — given freely now, no longer kept, earned and spent like the currency it had become between them — and said it back, and went to training, and played loose, and the day his broadsheet piece ran with his dead brother's name in the second paragraph was the day Gareth Vance bought twelve copies and could not explain to anyone at the club why he was crying in the car park, except that his son had finally, in a national newspaper, said the thing the whole family had spent five years unable to say: *Jordan. He cracked it. Both of my boys had the heart, and I'm not ashamed of either of them anymore.*
+
+## ◆ viii. The Back Wall
+
+*Ella*
+
+The degree show ran for three days and Ella spent all three on the back wall, watching the externals do exactly what Margot had predicted: arrive tired and performed at the front, move through the textiles, and reach Ella's corner with their faces finally open, ready to actually see.
+
+What they saw was not a styling project. It was the eight-minute film, looping, the orange light and the wrong film stock and Jordan's four notes climbing and falling, and around it the whole built world of the Knox identity, and a single wall text she'd agonised over and finally kept simple: *This is what a secret looks like when it gets told right.* The externals stood in front of it the way the chapel had stood in front of it, the way good work makes a room go still, and Dr. Annan — who never praised — stood at the edge with her arms folded and almost, almost smiled, and said, to no one, "There it is. The only real one in the building."
+
+Margot got the first job. A good agency, a real start, polish rewarded. She came to find Ella on the last day, and for once there was no needle in it. "You won," Margot said. "Not the front wall — I got that. But the thing that matters. The externals are still talking about your corner and they walked past my perfumery in ninety seconds. I built the most flawless empty thing in the cohort and you built the only full one, and I finally get the difference, and it's annoying, and I think we should be friends, because in ten years you're going to be hiring and I'd like to be on your list." She put out her hand. "Margot Hale. Front wall. For now."
+
+"Ella Savage-Oluwa," Ella said, shaking it. "Back wall. Forever, probably. It suits me."
+
+And in October, when the supernova had long passed and the scene had moved on and no one was offering her anything off the back of a story, Ella called Imogen Clarke-Bayo, and Imogen said the seat was a better seat now, and explained why — *unbuyable is the only thing worth money in twenty years* — and Ella took it, on her terms, in the cold clear light of nothing exploding, the slow way, the earned way, the back-wall way. Her mother put the offer letter on the fridge. Her father made sure they spelled both names right on the contract. Tioluwa asked if Ella could get her work experience, and Ella said yes, and meant it, the minefield-walker clearing one more path for the sister who got to take the cleared road.
+
+## Epilogue — One Year On
+
+*Ella*
+
+Parklife, the second weekend of June, Heaton Park gone gold under a sky that had, miraculously, this being Manchester, decided to behave.
+
+Ella stood at the side of the main stage in the dust and the noise with a laminate around her neck that said **CREATIVE DIRECTOR** and both her names under it, Savage and Oluwa, spelled right, and watched a year of her life become true in front of forty thousand people. Knox's album had gone gold in the autumn. The film she'd built in nine sleepless days had been written up everywhere — *the night the ghost crossed the room* — and it had done exactly what she'd told Imogen it might: torched some bridges, built better ones. She freelanced now, mostly, between the seat at Imogen's and the projects that came to her, because the work came to you in the end when you stopped chasing it and started being undeniable.
+
+Out on the stage, under the gold, Knox was three songs deep and the crowd was a single animal, and at the back of the stage, half in the shadow he still liked, hood down for once, stood the man working the live production — the one the festival had booked specially, the one the artists asked for now by a name that wasn't a secret anymore but still wasn't loud, because some people are quiet by nature and not only by wound.
+
+Cal caught her eye across the stage and did the thing. Went completely still in the middle of all the noise — the counting stillness. And then — and this was the year's ten thousand reps made visible — he smiled, the real one, the unguarded one, and he didn't go back to the corner. He crossed the stage to her, through the cables and the crew, in front of everyone, and put his arm around her, easy, public, a man who had stopped being a ghost.
+
+"You did this," he said into her ear, over the noise. "The whole world out there. You built it."
+
+"You made the sound."
+
+"You made the *world.* We've been over this. It's the whole argument." He'd said it a hundred times and it never stopped being the thing they returned to, the original friction turned foundation. "Your dad texted. He and your mum are watching the stream. Your mum says the staging is —" he checked his phone, deadpan "— 'very nice, but you could still have done it from a position of *something*.' Then a row of hearts. Twelve."
+
+Ella laughed, the real one, into the gold afternoon.
+
+It was not all perfectly mended, because nothing real is. He still pointed the intensity the wrong way sometimes; he'd done it twice that year, and both times she'd named it and both times he'd put it down, faster each time. His father came to things now — rugby and music both, the two no longer at war in the old man, who'd become Cal's most disconcerting fan and used "drop" wrong with total confidence. Cal still played; he'd signed the contract, on his terms, the clause that let him produce openly intact. Jordan's records lived in Cal's flat now, out of the Catford grave, played loud, his name on the tracks — *Produced by Cal Vance* — both worlds in one room at last, because the one person who'd ever stood in all his rooms at once had refused to let him keep them apart.
+
+Now, on the main stage at Parklife with the city's whole summer roaring out in front of them, Cal pulled her in and said, "The catch can have everything else."
+
+"It's not having this afternoon," Ella finished, and meant it, and leaned into him — the strong one who'd learned how to be held, the eye who'd built a hundred worlds for everyone else and finally one for herself, and one for him: the door she'd built that he'd walked through, the only world either of them had ever wanted, which had turned out not to be a stage or a studio or a stadium at all.
+
+It was just the one other person who could see you. Standing still in the loudest room. Crossing it anyway.
+
+The sun went down gold over Heaton Park, and Knox hit the song with Jordan's four notes buried in it, climbing and falling, and forty thousand people who would never know whose voice they were feeling more than hearing put their hands in the air — and two people at the side of the stage stood very still in the middle of all of it, fully visible, fully seen, both names spelled right, home.
+
+*— THE END —*
