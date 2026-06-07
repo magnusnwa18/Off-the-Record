@@ -228,4 +228,96 @@ Ella looked at him for a long moment, and something in her face softened, becaus
 
 "You're exactly as far gone as I think," Ella said, "which is the problem, and also, God help me, the appeal," and she went back into the room to finish working it, and he let her, and that was the lesson, the whole lesson of those weeks compressed into one bar room: the furnace did not get to be a leash. He could feel the heat and not feed it into another person. It was the hardest rep he had ever attempted, harder than the flat pass, and he practised it the same way — ten thousand times, getting it wrong, being told, putting it down — and slowly, over the spring, under her steady unsentimental correction, the furnace started to learn the one thing his father's never had: how to be warmth instead of fire. How to heat a room instead of burning down the person standing in it.
 
-*[Chapter Two continues — the warehouse shoot, the long walk, and the chip-shop step at three a.m.]*
+---
+
+## ◆ vi. The Wrong Film Stock
+
+*Ella*
+
+The shoot for the first single happened in a railway arch in Mayfield that someone knew someone to get the keys to, and it ran from nine at night until the sky over the city went the colour of a bruise healing, and it was, Ella would think later, the night her world stopped being a deck on a laptop and started being a thing that existed in the air.
+
+She'd built it and now she got to watch it come true, which was a feeling she would chase for the rest of her life and never fully catch again, because the first time is the only first time. The wrong film stock — she'd insisted, against the DoP's instinct, expired stock that bled the colour. The orange streetlight, achieved with gels and a borrowed sodium lamp and a fog machine that the arch's damp turned into something better than fog, a genuine haze that made everyone look like a memory of themselves. Knox at the centre of it, electric, doing take after take, the camera loving him because she'd told him to stand the way the sound stood — reluctant, half-turned, like he had somewhere else to be — and the whole identity she'd promised the label assembling itself in real time, three feet in front of her, beautiful and slightly ruined and exactly, precisely true.
+
+Cal wasn't supposed to be there. Producers weren't, usually, and a producer who was secretly a fly-half whose face couldn't be in a single frame definitely wasn't — but he came anyway, late, hood up, hanging back in the dark beyond the lights, and Ella clocked him the second he arrived because she'd developed, to her private alarm, an instinct for it. The room would reorganise and she'd know, before she turned around, that he'd walked into it. She didn't go to him. She couldn't; she was working, she was the creative director, forty people were looking to her. But she felt him there in the dark watching her world come true, and she understood that he'd come to watch *her* have the thing — that he'd risked the location and the eyes to stand in the dark and witness the one night she got to be undeniably, publicly good at the thing she was — and the witnessing was its own kind of gift with the price torn off.
+
+Sasha materialised at her shoulder during a reset, two coffees, handing her one. Sasha did this — appeared, gave you something, watched what you did with it. "Your mysterious producer's here," she murmured, pleasant, her eyes doing the slow inventory of the dark beyond the lights. "V. He never comes to shoots. Two years and I've never once got him in the same room as a camera." A sip. "Funny thing about a producer that good with no face. Whole scene wants to know who he is. That's not shyness — shyness doesn't make a record like the single. That's a *strategy*, and a strategy that good has a story under it, and stories are my whole job." She let it sit, warm, lethal. "If you ever found out who he is — and you're in that studio more than anyone — and you wanted to tell me, off the record, it would be very, very good for you, Ella. The eye who unmasked the ghost. That's not a styling credit. That's a launch. That's the difference between getting hired and being *wanted.*"
+
+And there it was, laid on the table as smoothly as Ella had laid Cal's own moves out at the party — the first real probe, the shape of the cliff visible now through the haze. Ella kept her face exactly where it was, the professionalism welded on, her mother's breath in her chest, and felt the cold settle in her stomach that she would later recognise as the first clear sight of what was coming.
+
+"I genuinely don't know who he is," Ella said. "He's a closed door. I make the outside of it look nice. That's the whole arrangement." A lie now, fully a lie, load-bearing, and she watched Sasha receive it.
+
+"Sure," Sasha said, and smiled, and the smile said *I don't believe you and I respect the loyalty and I will be here when it gets expensive,* and she drifted off to do inventory on someone else, and Ella stood holding a coffee she hadn't asked for, in the haze and the orange light, in the middle of the most beautiful thing she'd ever made, and understood that the danger in this project had a name and the name was not Cal's father. The name was the story. And the story wanted out, the way every secret she'd ever met wanted out, the way she'd said it herself, in the pitch, weeks ago, not knowing she was describing her own spring: *like a secret that got out.*
+
+She found him in the dark beyond the lights when the wrap was called and the crew started breaking down the world she'd built, coiling the cables, killing the sodium lamp so that the arch went back to being just an arch.
+
+"Your fixer just offered to make me famous," she said, low, "if I tell her who you are."
+
+He didn't react the way she expected. He didn't tense or pale. He turned his head and looked at her, the counting stillness, and said — evenly, the dangerous level — "Are you going to?"
+
+"No."
+
+"Why not? She's right. It'd be a launch. The eye who unmasked the ghost. You'd never have to find a brand again — they'd come to you, the rest of your life." His voice was perfectly level and she realised, with a lurch, that he was *testing* it, the door he'd given her the key to, finding out at last whether she'd open it the second it became useful, whether the *useful* she'd claimed on the first afternoon was the truth or the posture. "You told me you're only keeping it because it's useful. Well — it just stopped being useful and started being expensive. Sasha's going to ask again, and louder, and eventually someone offers you the thing you've wanted your whole life in exchange for eight words. So. Are you going to."
+
+Ella looked at him in the dying orange light, at the boy who'd told her about Jordan with his head on the desk, who'd built his brother a grave out of buried sound, who'd handed her the one key that could destroy him and then spent weeks watching to see if she'd use it — and she decided to stop lying. To him, and to herself, in the same breath.
+
+"Cal," she said. "I lied to you. The first afternoon. When I said I was only keeping the secret because it was useful."
+
+Something moved across his face.
+
+"I kept it because you told me the true thing instead of the brand answer," she said. "At the party you knew I'd see through you and you came over anyway, and in the studio you handed me a loaded gun and called it trust, and that's the realest thing anyone's done for me in about twelve years, and I've been pretending it didn't land because landing is dangerous, because I've got a deadline and a deal and a mother who calls at six o'clock, and I cannot afford —" her voice did the thing and she let it "— I cannot afford to want a thing I can't have. I've spent my whole life not wanting things so I could carry the things I had to. And you are the single most inconvenient thing that has ever happened to me, Callum Vance, and I'm not going to tell Sasha who you are, not because it isn't useful — because it *is* useful, that's the whole point, the useful thing and the right thing are finally pointing opposite directions and I'm choosing the other one — I'm choosing *you*, your secret over my launch, and that is the most terrifying sentence I have ever said out loud, and I'd like it on the record that I'm furious about it."
+
+The arch had gone quiet around them, the crew packing the last of the world into flight cases, the haze thinning. Cal looked at her for a long moment in the dark.
+
+"Come outside," he said.
+
+---
+
+## ◆ vii. The Chip-Shop Step
+
+*Ella*
+
+The street outside the arch was empty and wet and the rain had stopped and the air smelled of iron and the cold spine of the city, and they walked without deciding to, away from the lights, past the dark hulk of the old station, and neither of them said anything for a while, and the not-saying was the loudest thing either of them had done all night.
+
+"I've never told anyone about Jordan," Cal said eventually. "Not Tom. Not Webb. Not in five years. And I told you because you hummed four notes by accident. I keep trying to work out why it was you, and I think it's because you're the only person I've ever met who's also two people — the one everyone sees and the one carrying it. You knew where my door was because you've got the same door. I didn't let you in. You just already had the key, because it's the same key. It's the same lock."
+
+"I know," Ella said. "I clocked it at the party. Before I knew your name. You were the only other still thing in the loudest room and I thought, *that one's like me, that one watches because being watched is worse.*"
+
+He stopped walking. They were under a streetlight — the orange, the exact orange she'd built two whole worlds out of now, the campaign and the night — and it occurred to her that she'd specified this colour for the shoot because somewhere underneath she'd already known it was the colour of this, of him, of the thing she wasn't letting herself want. "I'm not good at this," Cal said. "Whatever this is. I read rooms, I read odds, I don't know how to do a thing I can't calculate. And I can't calculate you. I've tried. I've run it every way. You keep coming out as the same answer and the answer doesn't make sense for a man in my position."
+
+"Which is?"
+
+"Worth it." He said it like a man stepping off a high thing into the dark. "You keep coming out as worth it. The deal, the project, your deadline, your mum, Sasha, my dad, the leak that's going to come someday because secrets always get out — I've run all of it, all the catastrophic odds, and the answer's still worth it. I've never had a number do that before. Worth-it is not a number I trust. And it won't go away."
+
+There was a chip shop three doors down — the only lit thing on the street, open absurdly late, the kind of place that exists entirely to catch people at exactly the moment Ella and Cal were having, two people who'd run out of road on a thing too big to say standing up. Later neither of them could fully explain why they ended up in it, except that the moment had become too large and they were both people who'd learned to survive large moments by getting smaller and more practical — so they bought chips. Chips at three in the morning, in polystyrene, drowned in vinegar, and they sat on the cold step outside while the city's last empty buses went past gold and lit and carrying no one.
+
+"This is so romantic," Ella said. "Vinegar. A bin. The actual bins of Mayfield."
+
+"You built a whole campaign out of beautiful-and-slightly-ruined," Cal said. "I'm just doing product testing. Quality control on your own brief."
+
+She laughed, properly, the unmanaged one, the one that got loose maybe twice a year and had got loose, she'd noticed, far more than twice since February — and he watched her do it with the counting stillness, and when she turned to say something else he was very close, closer than the step required, and the laugh died in her throat, not unpleasantly, the way a held breath dies when you finally decide to let it go.
+
+"I'm going to kiss you," Cal said, "unless you tell me not to. And I want it on the record — since you're so fond of the record — that I've run the odds on this, properly, all of them, and they're terrible. Your deadline. The project. Sasha doing inventory. My dad. The leak. The fact that the second this is real it's a thing that can be taken from both of us. The odds are catastrophic."
+
+"They're apocalyptic," Ella agreed, not moving away.
+
+"Apocalyptic. So I need you to know I'm not doing this because it's a good bet." His eyes did the thing, the full beam, the measuring that had stopped being detached somewhere back in February. "I'm doing it because it's the only thing I've wanted in five years that's just for me and not for anyone watching — no touchline, no streams, no nod to earn. Just this. Just you. You can decide what that tells you."
+
+And Ella Savage-Oluwa — who had folded the wanting-part away at nine in a cold hall, who had spent twelve years making sure she was never a thing anyone had to carry, who had said *not yet, soon maybe, not never* to herself at a launderette door and meant the *not never* more than she'd meant anything — closed the distance herself. Because looking away first was an apology, and waiting to be kissed was a kind of looking away, a kind of letting someone else cross the room, and she was done apologising for wanting things, and she was done being the one who waited to be reached.
+
+"It tells me," she said, against his mouth, "that you finally stopped reading the room."
+
+She kissed him on a chip-shop step in Mayfield at three in the morning — vinegar and cold and the iron smell of the city, under the exact orange light she'd built a whole world out of — and the kiss was not careful, and it was not calculated, and somewhere behind them the last gold bus went past empty, and for once in both their lives neither of them was performing being fine, because they were not fine, they were something far more dangerous and far better than fine. For the length of that kiss neither of them cared who was watching, because for the first time in either of their lives the answer was *no one* — no touchline, no camera, no aunties, no scouts, no Sasha, no father, no quarter of a million strangers — and the only person who could see them was the only person either of them had ever actually wanted to be seen by.
+
+When they finally broke apart she kept her forehead against his, and the chips had gone cold, and she said, "The timing is catastrophic."
+
+"Apocalyptic," he corrected.
+
+"We're going to regret this so much."
+
+"Probably." His arm came round her on the cold step and she let it, she let it without flinching, the burn-near-a-hand reflex arriving and being, for once, simply overruled. "But the catch can have everything else. The deadline, the deal, the leak, all of it — the catch can have the lot. It's not having tonight." He pressed his mouth to her hair. "It's not having three a.m. on a chip-shop step. That one's ours. I'm taking that one off the table before the catch even gets here."
+
+And Ella sat on the cold step in the orange light with cold chips and a warm boy and the whole apocalyptic future stacked up somewhere past the end of the street, and let herself have the one thing, the tonight, the three a.m., un-folded, undefended, hers — and it was, by a distance she couldn't measure, the bravest and most reckless and most alive she had ever, in twenty-one carefully managed years, allowed herself to be.
+
+The city, beautiful and slightly ruined, witnessed it without comment. The last bus was gone. There would not be another till morning. Neither of them moved to find one.
+
+*[End of the rising movement of Chapter Two. Continues — the secret relationship, the stolen weeks, and the first hairline crack as the project starts to get loud.]*
