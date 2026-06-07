@@ -9,8 +9,8 @@
 
 | Chapter | Title | Target | Drafted | % | Status |
 |--------:|-------|-------:|--------:|--:|--------|
-| 1 | Collision | 45,000 | ~29,600 | 66% | Full arc drafted (18 scenes; party → reveal → deal → first week). Can top to 45k later. |
-| 2 | Orbit | 45,000 | ~11,300 | 25% | **In progress** (8 scenes; through the first kiss + the stolen secret weeks) |
+| 1 | Collision | 45,000 | ~30,600 | 68% | **Narrative arc COMPLETE** (19 scenes; party → reveal → deal → first week → match-week). Word-target expansion optional. |
+| 2 | Orbit | 45,000 | ~14,500 | 32% | **Narrative arc COMPLETE** (11 scenes; argument → Jordan reveal → no-invoice → furnace → first kiss → stolen weeks → first crack → the turn). Word-target expansion optional. |
 | 3 | Two Cities | 45,000 | 0 | 0% | Skeleton ready (old ch.9–10) |
 | 4 | Reckoning | 45,000 | 0 | 0% | Skeleton ready (old ch.11–15) |
 | 5 | Midnight | 45,000 | 0 | 0% | Skeleton ready (old ch.16–19) |
