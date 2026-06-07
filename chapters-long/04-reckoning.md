@@ -314,6 +314,38 @@ She did not, that night, decide about the offer. But she knew, building the film
 
 ---
 
+## ◆ xiii-b. The Number Folded in Her Bag
+
+*Ella*
+
+There was a night, in the middle of the black hour, when she nearly signed it.
+
+Day four after the leak. Three in the morning. The film half-built, the laptop's blue light gone cold, and Ella sat on the floor with Imogen's folded offer beside her and her own voice in her head sounding exactly like her mother's old performance — the not-crying voice, the strong-one voice, except now arguing the other way. *This is mad. He thinks you betrayed him. He knifed you in the softest place you've got and turned his phone off so you couldn't even be innocent at him. You turned down nothing yet — the offer's still there, real, the number bigger than Dad ever made, and you're spending the worst nine days of your life building a love letter to a man who isn't speaking to you, for a maybe, for a door he'll probably never walk through. London is sitting right there. The safe thing. The proof. The answer to six o'clock. And you're going to set it on fire for a boy who already set you on fire first.*
+
+The voice was persuasive. It had crossed two oceans. It had sat at a midnight table not crying. And Ella got as far — she'd admit this to no one but Priya, much later — as opening the offer email, the reply box, typing *Imogen, thank you, I'd be delighted to accept* —
+
+And then she made herself do the thing that was her whole gift, the thing that separated her from the fear: she stopped asking what she *wanted* and asked what the *true* version was. Not the safe version, not the frightened version — the load-bearing one. And the true version was this: she didn't want the seat if she got it by riding his ruin. She'd said it to Sasha's face, *I won't build my career on his worst day*, and it hadn't been a performance, it had been the realest read she'd ever done. The frightened voice wanted to call that naïve. But the frightened voice had never once, in its whole careful life, found out who it was, because it had never let itself choose between what it wanted and who it wanted to be. Imogen had named it in a Soho coffee shop: *lucky you, it's horrible.* And it was horrible. And it was hers. And at three in the morning on day four she closed the offer email, unsigned, and went back to the film, and the closing of it was the exact moment she stopped being the strong one who carries what she has to and became the person who *chooses* what to carry.
+
+She'd refuse the offer properly later — a phone call to Imogen, the whole reasoning laid out — but the real refusal happened here, on the floor, at three in the morning, alone except for her mother's voice now reweighted in her head (*don't carry it alone to look strong for me*) and the blue light and the half-built room. She cried for ten minutes, the not-strong kind, and then made tea, and kept building, because the film wasn't right yet and right was the only standard she had.
+
+---
+
+## ◆ xiii-c. The Text He Didn't Send
+
+*Cal*
+
+Cal's hardest rep, in the black hour, was not the grand crossing he was planning. It was the small one he kept failing: trying to reach the two people he'd shut out, and finding the ghost's hands didn't know how.
+
+He drafted a text to his father forty times. *Dad. Dad, please. Dad, the music is Jordan, it's the thing you saw in the second half, it's not the road that killed him, it's — * Delete. *Dad, can I come to the house. * Delete. Because the words wouldn't fit on a screen, and because a text was the coward's crossing, more words from the boy who'd gone silent for two days at sixteen, and his mother had been clear: *you'll have to show him, not tell him.* So the texts stayed undrafted, and his father stayed silent, the fixed star dark, and Cal learned the specific torture of knowing exactly what you need to do and not yet being able to do it — the gap between resolve and capability that is the whole content of the bottom.
+
+And he drafted a hundred to Ella. *It wasn't your fault. I knew it wasn't you. I did the thing I do. I'm sorry. * Delete — because his mother was right about that too, an apology by text was just more words from the boy who'd used words to hurt her, and Ella deserved a crossing the same size as the wound, not a notification. So he didn't send them. He held them, all hundred, undrafted and unsent, and the holding was agony, because every hour he didn't reach her was an hour she spent believing he believed she'd betrayed him, and he knew — he *knew* — that silence to someone you've wronged is its own cruelty, the second knife after the first.
+
+He almost broke once. Picked up the phone, found her name, *Ella*, eleven unanswered messages above the cruelest reply, his thumb over the call button at 4 a.m. And he didn't press it — not because of pride, for once, but because he finally understood, on his brother's floor's lesson, that calling her at 4 a.m. to feel better was *taking* something from her (his own relief) when what he owed her was *giving* (a crossing that cost him, in public, where she could see). The ghost's instinct was always to take the cheap private fix. The climb was to wait, and build, and pay the expensive public price. So he put the phone down, and he called Knox instead — Knox, who'd said *I'll put your name on it the second you say the word* — and said, in a voice that shook, "I need to ask you for something mad. I need you to help me build a moment. Somewhere public. Where I tell the truth on my own terms before anyone tells it for me. The album launch. The chapel. Can you — will you give me the stage for ten minutes. I think there's someone building something too, and I don't know what, and I think I need to build mine so they meet in the same place. Will you help me cross a room in front of everyone."
+
+And Knox, down the line, after a silence, said: "Bruv. I've been waiting since we were sixteen for you to say the word. *Finally.* Yeah. I'll give you the stage. Let's get the ghost out the corner." And the climb, at last, had a *how* — though Cal didn't know that three hundred miles away the someone-building-something was building toward the exact same chapel, the exact same night, and that the room and the crossing were, without either knowing, about to arrive at the same place at the same time after all.
+
+---
+
 ## ◆ xiv. Two Climbs, Two Cities
 
 *Cal & Ella*
