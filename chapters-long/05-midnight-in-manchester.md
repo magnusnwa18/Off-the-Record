@@ -348,6 +348,32 @@ And Ella watched Cal hold a gold record with his dead brother's name engraved on
 
 "Both names," Cal said. "Spelled right." And he kissed her in the warm tumbling dark, in the flat they kept, with a gold record and his brother's name and the people who'd stayed, and it was not a held breath, and it was not a secret, and it was not the corner of a loud room. It was just the unhidden ordinary miracle of two people who'd stopped performing being fine, and the dryers tumbled below them like a heartbeat, and the orange light came through the thin curtain, beautiful and slightly ruined, the way she'd taught herself to love it, the way she'd taught him.
 
+## ◆ xvi. The Step, A Year On
+
+*Cal & Ella*
+
+They went back to the chip shop in Mayfield once, that spring, not on purpose — they'd been at a thing nearby and the night had run long and they were walking it off, the way they'd walked the night of the first kiss, and they came round a corner and there it was, the only lit thing on the street, open absurdly late, the same polystyrene and vinegar and iron-smelling air, and they looked at each other and didn't have to say anything, because some places you don't walk past.
+
+So they bought chips, at three in the morning, and sat on the cold step under the orange light — the exact orange, the one she'd built two worlds out of — and Ella said, "Do you remember what you said. Here. The first time."
+
+"I said the odds were catastrophic."
+
+"Apocalyptic," she corrected, and he laughed, the real one, the one she'd been collecting for two years now and had stopped rationing herself on. "You said you'd run the odds and they were terrible and you were doing it anyway. The deal, the project, the deadline, my mum, Sasha, your dad, the leak you could already feel coming. All of it. Catastrophic odds, and you crossed the room anyway."
+
+"I was right," Cal said. "About the odds. Every single one of them came due. The leak came. My dad found out the worst way. We broke. You nearly took the offer. It all happened, exactly the catastrophe I priced." He bumped her shoulder with his. "I just had the conclusion backwards. I thought catastrophic odds meant don't. Turns out catastrophic odds just means it'll cost you everything, and some things are worth everything, and the only mistake is thinking the price is a reason not to pay it." He looked at the orange light on the wet street. "The catch came for all of it, in the end. The deadline, the deal, the secret, the safe version of both our lives. It took the lot, exactly like I always knew it would."
+
+"And?" Ella said.
+
+"And it never got this," Cal said. "This step. This three a.m. The chips. You. The catch had everything else — it always does, that's what a catch is — but I took these off the table before it ever arrived, every single one, one at a time. *The catch can have everything else.* I said that to you on this step two years ago and I meant it as a sad thing, a brave-sad thing, like I was conceding the war and keeping one night. But it's not sad. It's the whole secret. You don't beat the catch by having no catastrophic odds. You beat it by deciding, in advance, which things it doesn't get — and then you defend those, ten thousand reps, with everything you've got, and you let it have all the rest, and it turns out the rest was never the point." He kissed her, vinegar and cold and the iron smell of the city, under the orange light, on the step where it started. "The catch can have everything else. It's not having this step. It was never having this step."
+
+And Ella — the strong one, who had folded the wanting away at nine and spent twelve years subtracting herself from the cost of everyone's lives, who had finally learned to set the weight down in the middle where someone could see it — sat on a cold step at three in the morning eating chips with a boy who'd stopped being a ghost, in the orange light she'd loved before she knew why, and understood that this was the thing she'd been building toward her whole life without a name for it: not a career, not a degree show, not her name on a wall, though she had all of those now. Just this. A warm person beside her in the cold. The unhidden ordinary. One other person who could see her, who'd crossed the room, who kept crossing it, ten thousand reps, into the daylight, both names spelled right.
+
+"Beautiful and slightly ruined," she said, looking at the wet orange street, the bins, the chip shop, the whole gorgeous unglamorous city she'd built a self in.
+
+"That's the whole brief," Cal said. "You wrote it. September. Before any of it was real."
+
+"I wrote the brief for my own life before I knew I was living it," Ella said, which was the truest thing, and leaned into him, and let the catch have everything else, because it wasn't having this, and it never would.
+
 ## Epilogue — One Year On
 
 *Ella*
