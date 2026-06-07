@@ -166,6 +166,38 @@ And the *I love you* — the one she'd kept that night in the chapel, the one he
 
 She said it on an ordinary Tuesday in November, in the launderette-warm flat with the dryers tumbling, no occasion, no stage, no four hundred people. He'd done some small sideways looking-after thing — the right food, the heater already on, a deadline he'd quietly taken thirty minutes of pressure off — and she looked up from her laptop, the blue light on her face, and just said it, plainly, the way the truest things get said: *I love you.* And he went still, the counting stillness, and said it back, and it wasn't a grand gesture or a crossed room or a film at a launch. It was two people in a small warm flat above a launderette, neither performing being fine, because they weren't fine — they were something far better than fine — and the *I love you* had been earned the slow way, ten thousand reps, and so when it finally arrived it weighed exactly what a true thing weighs, which is everything, and nothing you have to carry alone.
 
+## ◆ vi-b. Christmas in Lewisham
+
+*Ella*
+
+She brought him for Christmas, both names on the place card, spelled right, and it was, as her mother had promised, *a lot, held by people who stay.*
+
+The house in Lewisham swallowed Cal whole the way it swallowed everyone — the not-quite-aunties, the cousins, the pastor, the food that did not stop coming — and Ella watched her secret-no-longer boy, who had spent his life being the still centre of loud rooms, get utterly, helplessly overwhelmed by a South London Nigerian Christmas, and she loved him for the overwhelm, because for once he wasn't reading the room for threats and exits; he was just in it, lost in it, a tall rugby player being fed jollof by three women who'd decided he was too thin, and he let them, the no-invoice grace working both directions now, a man learning to be looked after by a whole house.
+
+Her father interrogated him about the rugby for ninety minutes and pronounced him "sound, for a back" — high praise, her father having been, in his minicab-and-Sunday-league youth, a forward. Tioluwa interrogated him about the music and got him to admit, which Ella had never managed, exactly how he'd made a particular Knox beat, and played it for the whole room, and the room danced to it, the aunties and the pastor and Ella's father, dancing to a track with Jordan four feet down in it, and Cal stood at the edge watching a Lewisham front room full of strangers carry his brother without knowing it, the way a quarter of a million strangers did, except these ones were dancing, these ones were *joyful*, and Ella watched his face do a thing she'd only seen it do once, in a chapel, and went and stood beside him and took his hand, in front of everyone, claimed, public, no window to hide from.
+
+"They're dancing to Jordan," he said, quiet, wrecked-happy.
+
+"They're dancing to Jordan," she agreed. "In a warm room. At Christmas. That's not a grave, Cal. That's the opposite of a grave."
+
+And her mother, passing with a dish, having heard — her mother heard everything, the family gift — paused, and put her free hand on Cal's arm, the midnight-table hand, the one that rests and doesn't grip, and said, "So you are the one who kept his brother alive in the music. Eleonora told me. A little." A pause, the assessing look, the doctor reading a chart. "That is a good thing to do with grief, Callum. To make it into something other people can carry without it crushing them. It is, in fact —" and here her mother's voice did the thing, went somewhere rare "— it is what I tried to do, with this house. With all of this. Make the hard years into a thing that holds people instead of a thing that breaks them. So. We are the same, you and I, in this one way. You make rooms out of your grief. I make a house out of mine. Now eat. You are too thin and I have decided to fix it personally." And she swept off, and Cal looked at Ella with his eyes bright, and Ella thought: *both my worlds, in one house, dancing to the same buried song. He spent five years certain his two selves could never be in one room. And here they are, in my mum's front room, being fed jollof, dancing to his brother. The boxes are gone. He's just a whole person in a warm house, finally.*
+
+## ◆ vi-c. The Sister's Path
+
+*Ella*
+
+Tioluwa did her work experience at Imogen's studio that summer, on Ella's recommendation, and watching her sister walk into the building Ella had screenshotted since she was sixteen — walk in at seventeen, unafraid, because the path was cleared — was its own quiet completion of the whole arc.
+
+"You realise this is mad," Tio said, on her first day, in the lift. "A year ago you were lying to Mum about a graduate scheme and now I'm doing work experience at the place you *work*, the place you turned *down* and then got a better offer from, and Mum explains your job to strangers with a diagram, and there's a *boy* who makes the music my whole school listens to and he calls me 'Tio' and helped me with my personal statement. A *year*, Ella."
+
+"A year," Ella agreed.
+
+"You went into the minefield," Tio said, quieter, the lift rising. "You said that, on the step at Mum's birthday, ages ago. That you walk in first so everyone behind you knows where the mines are. And I didn't really get it then. I get it now. I'm walking a cleared path. You cleared it. The art-versus-law fight, the being-seen-versus-being-safe thing, the whole — you took all the hits so that when I do something Mum doesn't understand, she's already got a script, because you wrote it, in real time, by getting it wrong and right in front of her for years." The lift doors opened onto the studio, the real one, the one that was Ella's. "So. Thank you. For the cleared path. I'm going to walk it really fast and really far, and it's because you went first."
+
+And Ella — the eldest, the strong one, who had flicked a switch at nine in a cold hall and decided to subtract herself from the cost of her family's life — stood in the lift with her little sister on the cleared path and understood, finally, completely, that the carrying had not been a tax after all. It had been a *gift*, the way Cal's buried music was a gift, the way her mother's house was a gift — grief and strength turned into something that holds the people behind you instead of crushing the person who carries it. She'd spent her whole life resenting the weight. And here was Tioluwa, seventeen, fearless, walking through a door Ella had spent twelve years prying open, and the resentment was just — gone, replaced by the only thing that ever actually heals the strong one, which is watching someone walk the path you cleared and knowing the carrying meant something, the carrying built something, the carrying was, all along, a kind of love you didn't know how to receive because no one had taught you that doing it for others was allowed to feel like enough.
+
+"Go on," Ella said. "Don't be late on your first day. And Tio —" her sister turned in the doorway "— you don't have to be the strong one. I did that. It's covered. You just get to be good. That's the whole inheritance. Go be good."
+
 ## ◆ vii. A Rep, Shown
 
 *Cal*
