@@ -329,3 +329,89 @@ And then the second feeling came, right behind the joy, the way it always did, t
 She did not sleep much that week either. She built a world. She listened to every track Knox had ever put out — the early stuff that was all hunger and rough edges, the middle stuff where he'd found the voice, the recent things produced by the mysterious *V* that had a different quality entirely, a depth, a late-night ache, a sound that wasn't slick but *intimate*, like overhearing someone's actual interior — and she built around it the thing she would later describe to a label as *a secret that got out.* She did not sleep, and she did not look at the Hargreave link, and she texted her mother *eating well, working hard, love you* at increasingly creative hours, and exactly once, on the Wednesday, at three in the morning, she found herself thinking — entirely unbidden, with real annoyance — about a boy who'd said *I came over anyway* and then walked off and won by losing, and she shut the thought in the same drawer as the cold tenant and went back to the work, because the work was real and the boy was a complication and she had no room in the budget of her life for a complication, and the studio she was going to on Thursday was just a room, and the ghost producer behind the boards was just a man with a mystique, and she would probably never even meet him.
 
 She was wrong about exactly one of those things. But on the Wednesday night, with the deck nearly built and the world nearly real and her whole future apparently fitting through a door in the Northern Quarter on a Thursday afternoon, she didn't know that yet, and she let herself, for once, sleep four whole hours, and she dreamed again in four notes she didn't recognise — three that climbed and one that fell — and woke not remembering them, only with the strange sensation, as she made her coffee in the grey Hulme morning, of being homesick for somewhere she had not yet been.
+
+---
+
+## ◆ vii. The People You Can't See
+
+*Cal*
+
+On the Wednesday — the night Cal made himself sleep, the professional eight hours, the servicing of the asset — he did not, in fact, sleep, because his agent called at half nine, and Marcus Webb did not call to chat.
+
+"You've got eyes on you," Webb said, with the particular relish of a man whose entire value proposition was knowing things first. Webb was forty, slick, dressed like money that wanted you to know it was money but had read an article about restraint; he'd signed Cal at nineteen on the strength of a single school-of-rugby fixture and had spent three years since being right about him, which made him insufferable in a way Cal had decided to tolerate because being right was the whole job. "Saturday. The fixture. I'm not going to tell you who because I don't want you tightening up, you play your best loose, but there'll be men in that stand whose phone calls change lives. So. Two things. One: you do the basics perfectly and you let the special stuff happen, you don't *chase* the special stuff. Two —" and here Webb's voice changed, dropped into the register he used for the things he actually cared about, which were never the things you'd expect "— is there anything I don't know."
+
+"Like what."
+
+"Like anything, Cal. Like a girlfriend who's going to put a story on her account that ends up screenshotted. Like a mate who sells a quote. Like a — I don't know what I'm asking about because if I knew I wouldn't have to ask, that's the point of the question. At the level you're about to be at, son, there are no small secrets. There are only secrets that haven't been monetised yet. Everybody's got something. The ones who make it are the ones who either have nothing or have already told me everything so I can manage it. So." A pause, down the line, expensive and patient. "Which are you. Nothing, or everything-already-told?"
+
+And Cal stood in his small bare professional bedroom — bare because he spent no time in it, because the studio was where he lived and this was where he slept the body — and looked at the question, the way he looked at a defensive line, and saw exactly how it was structured. Webb wasn't fishing idly. Webb had felt something. Agents were like Sasha, like Ella, like Cal himself: they read rooms for a living, and the room they read most carefully was their client, and Webb had picked up the static of a secret the way a man picks up the smell of smoke before he sees the fire.
+
+"Nothing," Cal said. Even. Easy. The flat pass of a lie, weighted perfectly, hung in the air exactly as long as it needed to. "I sleep, I train, I do my degree, I'm boring. Ask Tom, he complains about it weekly."
+
+"Mm," said Webb, and the *mm* contained an entire essay about how little he believed it and how he'd decided, for now, not to push. "Boring's good. Boring's bankable. Stay boring through Saturday and we'll talk about your whole life on Sunday, because your whole life might be different on Sunday." He paused. "One more thing, and then I'll let you sleep. The special stuff. The thing that makes you different — and you are different, I've watched four hundred fly-halves and you've got a thing maybe three of them had — I don't know what it is and I don't need to. Some lads it's anger. Some it's fear of their dad. Some it's God. Whatever yours is, the thing that gives you *time* on the ball when everyone else is rushed — protect it. Don't let Marsh or me or anyone coach it flat in the name of consistency, because consistency's worth money but the *thing* is worth everything, and the thing is always the part nobody can see. All right. Sleep. Be boring. Change your life Saturday."
+
+He rang off. Cal lay in the dark and did not sleep, because Webb had, without knowing it, named the danger from a second angle. *There are no small secrets at this level. Protect the thing nobody can see.* And the thing nobody could see and the secret that hadn't been monetised yet were the same thing — were both, when you traced them down to the root, four notes that climbed and fell, a brother in a car on a wet road, a locked room with a name on the door. The thing that gave him time on the ball was the same thing that made the sound. Webb thought they were two topics. Ella, in three weeks, would tell him to his face that they were one. But that was three weeks away, and tonight Cal lay in the bare room servicing a body that wouldn't sleep, doing the arithmetic he could never make come out, which was: the bigger I get, the more eyes there are; the more eyes there are, the harder the locked room is to keep locked; and the harder it is to keep locked, the more it costs to keep it, and I am already paying everything I have. He was a man holding his breath who had just been told he was about to be asked to swim further.
+
+He got up at four and went to the studio and worked until the alarm for the Thursday told him to stop, and he did not open the clean file with the date for a name, because he didn't trust himself with it on no sleep, and he did not play the voice note, and he locked everything, the files and the room and the breath, and went to be the future a man from a protein company had called him four times, and he was, as instructed, boring, and bankable, and nobody could see the thing, and that was, he told himself, exactly how he wanted it.
+
+He was lying to himself. He was extremely good at it. It was, after all, just another flat pass, weighted perfectly, sold with the face — and the only person who had ever read his hips instead of his eyes was, at that exact hour, two miles south in a launderette-warm flat, building a world out of his music and not knowing it was his, getting ready to walk up a staircase that smelled of old paper and call his bluff with her whole life.
+
+---
+
+## ◆ viii. The Eve
+
+*Ella*
+
+Tioluwa called on the Wednesday night, which she was not supposed to do on a school night, which was exactly why she did it.
+
+"Don't tell Mum I'm up," Tio said, by way of hello, her voice low, the duvet-fort acoustics of a seventeen-year-old breaking the rules in a quiet house. "I can't sleep. I've got mocks and I hate all of it and I needed to talk to someone who isn't going to turn it into a lecture about how lucky I am to even *have* the mocks."
+
+"I would never," Ella said, settling back against the skip-rescued board, the deck for Knox glowing on the laptop beside her, the dryers tumbling beneath. "I am a lecture-free zone. What's wrong?"
+
+"Everything's fine, that's what's wrong. Everything's fine and I'm supposed to be grateful and I am grateful and I'm also losing my mind, and I can't say that to Mum because she'll do the —" Tio dropped into a startlingly accurate impression of their mother "— *do you know what I was doing at your age, Tioluwa* — and I can't say it to my friends because their version of stress is whether a boy texted back, and I just —" Ella heard her sister exhale, seventeen and overloaded. "How did you do it. Sixth form. All of it. You never seemed stressed. You were just — sorted. You were always sorted. Mum still holds you up like a — you're like a saint they pray to. Saint Eleonora of the Good Grades and the Sensible Choices."
+
+Ella laughed, but it caught on something on the way out. "Tio. I wasn't sorted. I was *performing* sorted. There's a difference and I'm only now learning how big it is."
+
+"What does that mean."
+
+Ella looked at the orange bar of streetlight across the floor and decided, because it was Wednesday night and her sister was crying quietly in a duvet fort and the truest things get said in exactly those conditions, to tell her the real thing. "It means I learned really young that if I looked like I had it handled, then nobody had to worry about me, and if nobody had to worry about me, then Mum and Dad had a bit more room to worry about the things they actually couldn't fix. The money, mostly. When we were small. There was a year, you were tiny, you won't remember — Dad lost the first proper job, the one with the security, and it was bad, Tio, it was midnight-at-the-kitchen-table bad, and I was nine and I decided, I literally remember deciding it, like flicking a switch: *I will never be a thing they have to worry about. I'll be the easy one. I'll handle myself so completely that I'm a relief instead of a weight.*" She swallowed. "And it worked. That's the thing. It worked so well that everyone — including me — forgot it was a performance. I became the strong one so convincingly that I stopped being able to find the seam between the strong one and me. So when you ask how I did sixth form looking sorted — I did it by deciding, at nine, that being a person with needs was a luxury for other people. That's not a recipe, Tio. Don't copy it. It's not strength. It's just fear wearing a really good outfit."
+
+There was a long silence down the line. The dryers tumbled. Somewhere in Lewisham, a seventeen-year-old sat very still in a fort made of duvet.
+
+"That's the most you've ever said to me," Tio said finally. "Like — ever. You don't *do* this. You do the lecture-free zone and the 'you've got this' and then you change the subject. You've never once told me you were scared of anything."
+
+"I know."
+
+"Why now?"
+
+Ella considered it. "Because I think I'm about to stop performing," she said slowly, surprising herself with the truth of it as it arrived. "I've got a — there's a thing tomorrow. A real chance. The kind I've been pretending I don't want as much as I want, because wanting it out loud is dangerous. And I think if I get it, I'm going to have to finally tell Mum and Dad the truth about what I'm actually doing with my life, and stop managing them, and stop being the easy one — and that's so terrifying that I think it's, like, leaking. The honesty. It's leaking out onto you because you called at the exact moment I couldn't hold it in anymore." She laughed, wetly. "Sorry. You called for comfort and got my entire breakdown."
+
+"No," Tio said fiercely, instantly, the way only a little sister can. "No, this is *better* than comfort. Comfort is when you tell me it's fine. This is when you tell me it's *not* fine and you're scared too and we're both just — doing it anyway. That's so much better. Comfort is lonely. This isn't." A pause. "What's the thing tomorrow?"
+
+"I can't say yet. I'll jinx it."
+
+"Saint Eleonora is *superstitious*, this is incredible, I'm telling everyone."
+
+"Go to *sleep*, Tio. You've got mocks."
+
+"You go to sleep, you've got your secret thing."
+
+"I will."
+
+"You won't. You're going to work on it all night, I can hear the laptop fan." Tio's voice softened, went younger. "Ella. Whatever the thing is tomorrow. Get it. Not for Mum, not so you can prove anything to anyone at church. Get it for *you.* Because I've spent my whole life watching you be the easy one and I always thought you were just — like that, naturally, born sorted — and now you're telling me you decided it at nine to take weight off everyone else, and I just — somebody should get to take some weight off *you*, for once. So get the thing. And then let it be yours. Don't even tell Mum if you don't want to. Have one thing that's just yours and not a performance for anyone."
+
+Ella sat in the orange dark with her phone hot against her ear and her sister's voice in it and the deck glowing beside her and the dryers tumbling beneath, and felt something she did not have a clean name for — the specific, dangerous warmth of being seen by someone she'd spent her whole life making sure didn't have to see her. The flinch came, right on schedule, the burn-near-a-hand reflex: *you can't accept this, accepting it means you're a person with needs, and you're not, you're the one who carries.* And for the second time that week, with the second person, she made herself not flinch. She let her little sister hand her something with no invoice attached.
+
+"Thank you," she said, and meant it all the way down. "Go to sleep. I love you. I'll tell you everything on Sunday."
+
+"You better. Night, Saint Eleonora."
+
+"Night, you menace."
+
+She did, in fact, work on it all night. Tio had been right about the laptop fan. She built the world until it was so complete that she could walk around inside it, until she knew exactly what she'd say and the order she'd say it in and which slide she'd let the silence sit on, until the deck stopped being a pitch and became a *place*, somewhere that already existed and just needed someone to agree to move in. And somewhere around four in the morning, with the city outside its lowest and quietest, the orange light steady, the dryers finally still, Ella Savage-Oluwa sat back from the finished thing and let herself feel, fully, undefended, for one unguarded minute, exactly how much she wanted it — and she did not manage the feeling, did not file it, did not charge it rent. She just wanted it, hugely, the way she hadn't let herself want anything since she was nine years old and flicked a switch.
+
+Tomorrow she would carry the deck up a staircase that smelled of old paper. Tomorrow she would find out that the ghost behind the boards had a face she'd already memorised across a loud room. Tomorrow the two boxes of her life and the two boxes of his would be set down on the same table and neither of them would ever get them fully closed again.
+
+But that was tomorrow. Tonight there was only a girl and a finished world and a wanting she'd finally let herself feel, and outside, the first of the morning's fine orange rain beginning again on the empty Hulme street, beautiful and slightly ruined, the way she'd taught herself to love it.
+
+She slept, finally, just before five. She did not dream in four notes this time. She did not dream at all. She slept the deep dreamless sleep of someone who has, after a very long time, set something down — not knowing it was the last full night's sleep she'd get before her whole carefully managed life cracked open along a seam she'd forgotten was there, and the light got in.
