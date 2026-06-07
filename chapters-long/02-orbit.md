@@ -456,6 +456,28 @@ She was, it turned out, funny. She was, it turned out, soft. She was, it turned 
 
 ---
 
+## ◆ viii-c. Knox Chooses
+
+*Cal*
+
+Knox turned down the feature on a Wednesday, and the way he did it told Cal everything about why the project had been worth building in the first place.
+
+He didn't announce it. He came into the studio, dropped the cans, sprawled on the sofa, and said, to the ceiling, "I told Sasha no on the sugar thing." A silence. "She did the whole — the staircase, the ten million, the 'pure costs you everything before you're big.' And I sat with it for a week, V, I genuinely sat with it, because she's not wrong about the maths, the maths is the maths. Ten million people is ten million people." He turned his head and looked at Cal at the desk. "And then I put on the single. Ours. The one with the —" he gestured vaguely, downward, at the buried thing he didn't fully know the shape of but had always felt, "— the deep bit, the thing under the drums that makes my chest do the thing. And I thought: if I do the sugar feature, the ten million meet *that* guy first. The sugar guy. And then they come to the album expecting sugar and they get the chest thing and they go 'this is sad, this isn't what I signed up for,' and they leave. So I'd have ten million people who think I'm someone I'm not, and the hundred thousand who know me would feel like I'd cheated on them. And I'd be at the top of the wrong staircase, exactly like you said." He shrugged, the chaotic generous shrug. "So. No. We do the album. We do it our way. We stay the hundred thousand who know. And maybe it stays small forever and Sasha's right and I die a cult artist in a nice flat. But it'll be *mine.* I'd rather be a secret that's true than a staircase that's a lie."
+
+*I'd rather be a secret that's true.* Cal went still — the counting stillness — because Knox had just said, lightly, sprawled on a sofa, the exact sentence that was the load-bearing beam of Cal's entire life, the principle he'd built the ghost on: *if it has my name on it, it stops being mine; better a secret that's true.* Except hearing it in Knox's mouth, about a *career choice*, Cal heard for the first time the crack in it, the thing Sasha had pulled at, the thing Ella was circling, the thing he couldn't yet look at directly: that "a secret that's true" was a beautiful principle for a *sound* and a terrible one for a *life.* Knox could keep the album pure and still put his own face on it, his own name, stand in front of the hundred thousand as himself. Knox got to be a true secret *out loud.* Cal had taken the principle one fatal step further — he'd made *himself* the secret, taken his own name off his own truest work, so that the thing that was pure was also, permanently, *unattributable to him*, a grave he tended in the dark where even the hundred thousand who loved it would never know whose chest it came from. Knox's purity cost him reach. Cal's purity cost him *existence.* They looked like the same choice and they were opposites, and Cal had spent five years unable to see the difference because he'd needed them to be the same.
+
+"You did the right thing," Cal said. Meaning it. And then, because Knox had earned it, because the handshake held: "For what it's worth — you're braver than me."
+
+Knox laughed. "Course I am. I put my face on my stuff. You're a *ghost*, bruv. Greatest producer in the city and you won't sign your own homework." He said it as a joke, the way you say the truest things to the people you love, and he had no idea — none — how close the joke landed to the centre, how it rhymed with a voice note that said *listen to the bit at the end* and a father at a touchline and a dead brother buried four feet down. He had no idea that the ghost wasn't a strategy. "One day you'll tell me why," Knox said, easy, returning to his phone, the moment passing. "The no-name thing. There's a why. I've known you since we were sixteen and there's a why and you've never said it. One day, yeah?"
+
+"One day," Cal said, and it came out rougher than the daylight voice usually allowed, and Knox glanced up, and clocked it, and — being Knox, being the kind of friend who knew when to hold a door without pushing — let it go, returned to his phone, said "play me the second single, the one Ella keeps saying is too clean," and the moment closed, the way they all closed, gently, leaving the *why* sitting in the room with the four notes and the held breath.
+
+But it had moved something. Knox choosing to be a true thing *out loud* — accepting the smaller reach as the price of being himself in the daylight — sat in Cal next to Ella at a sink three hundred miles south, next to a father he'd nearly told at a rail, and the three of them together, Knox and Ella and the imagined version of his own confession, started, very quietly, to make a case Cal had spent five years refusing to hear: that there was a difference between protecting a sound and erasing a self, and that he'd been doing the second while telling himself it was the first, and that everyone he loved had started, without coordinating, to point at the same locked door.
+
+He didn't open it. Not yet. But he stopped, that Wednesday, being able to pretend he didn't know it was a door, and not a wall — and a door, unlike a wall, is a thing that exists to be, eventually, walked through.
+
+---
+
 ## ◆ ix. The First Crack
 
 *Ella*
