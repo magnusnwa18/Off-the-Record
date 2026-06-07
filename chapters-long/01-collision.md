@@ -704,4 +704,96 @@ She put the phone away. She got on the bus. She rode it south through the orange
 
 The deal was struck. Both of them thought it was clean. Both of them were already, quietly, in the warm tumbling dark of their separate rooms, beginning to lie to themselves about it — and that, more than the party, more than the studio, was the true collision: not two people meeting, but two people each deciding, on the same grey Thursday, to call the most dangerous thing that had ever happened to them *useful*, and to mean the opposite, and to find out together, slowly, in a room above a vintage shop, exactly how long a person can hold a breath before the body simply, finally, insists on letting it go.
 
-*[Chapter One continues — Ella's first working week and the establishing of the deal's daily reality lead into Chapter Two: Orbit.]*
+*[Chapter One continues below.]*
+
+---
+
+## ◆ xv. The First Session
+
+*Ella*
+
+She'd expected, on the Monday, to feel like an impostor. That was the standard feeling, the one she'd been managing her whole career-that-wasn't-yet-a-career: the certainty that someone would look up from your work and say *sorry, who let you in, where's the real one.* She'd dressed for it — armour, the good coat, the boots, the single architectural earring, the look that said *I belong in any room* loudly enough to drown out the part of her that didn't believe it.
+
+What she hadn't expected was that the impostor feeling would evaporate the second she sat down at the little table she'd claimed in the corner of the studio, opened the laptop, and started to *work* — because the work was the one place the impostor had never been able to follow her. At the table, building, she wasn't Eleonora-who-might-not-belong. She was just the eye. The switch flicked. And Cal Vance, three feet away at the desk with his back half to her, was not the boy from the party or the secret she was keeping or the dangerous undefended feeling from the corner in the rain. He was a collaborator with a sound she had to serve, and serving a sound was the thing she did better than anyone, and so she did it, and the doing of it made the room safe.
+
+For about forty minutes.
+
+"It's too clean," she said.
+
+Cal didn't turn around. "It's not finished."
+
+"I'm not talking about finished. I'm talking about intent." She'd pulled up the second track, the one Sasha wanted as single two, and it sat on the monitors glossy and assured and *wrong*, and Ella had learned long ago that the only useful thing she could offer a room was the truth said early, before everyone got attached. "The first single is a three-a.m. sound. The interlude's a three-a.m. sound. This —" she gestured at the speakers "— is a *Saturday afternoon* sound. It's confident. It's having a nice time. It does not match the world I'm building, and if you put it out under this identity it'll read as a lie, and the whole point of the first track is that it doesn't lie."
+
+Now he turned. The chair swivelled, slow, and there it was — the full beam, the attention she'd felt at the party, except she'd learned since Thursday that the detachment was a setting he chose and not a thing he was, which made the choosing-not-to with her feel like information. "The world you're building," he said, "serves the music. Not the other way round. You build the outside of the door. I make what's behind it."
+
+"The world serves the *story*," Ella said. "And the music is half the story. The other half is everything around it — the colour, the type, the film stock, the way the artist stands — and right now you're telling me one story with your ears and a completely different one with the part of you that thinks the visuals are decoration." She held his eyes. "You hired me to see. So let me see. Play me the one you keep almost playing and not playing."
+
+He went still. The counting stillness. "How do you know about that one."
+
+"Because you keep reaching for it." She nodded at his hand, at the trackpad, at the gesture she'd already learned to read in two sessions. "You did it this morning. Your hand went to a file and stopped and you opened something else. You did it Thursday too, before the others came — I heard a bit of it through the door, on the stairs, the one with the —" she almost said *the four notes*, and didn't, because something stopped her, a fish under ice "— the deep one. The one that sounds like it's the actual centre of all of this. You've got a track you think is the real one and you're not playing it to me because you're scared of it. And I can't build the world right if you're hiding the middle of it. That's not me being difficult. That's the job. The middle is the brief."
+
+The silence went on long enough that the city filled it — the shop shutter below, a bus, gulls who'd come too far inland to know they were lost. Cal looked at her with an expression she couldn't read, which was rare, which was, she was starting to understand, the thing about him that she found most dangerous: that she could read almost everyone almost instantly and she could not reliably read *him*, and the unreadability was a country she kept wanting to visit.
+
+"That one's not for the project," he said.
+
+"I know."
+
+"Then why —"
+
+"Because the project should know it exists," Ella said. "Even if no one ever hears it. The whole identity should feel like it's orbiting that track — like there's a centre of gravity holding the shape of everything, and the centre's invisible, and that's *why* it works, because people can feel a centre they can't see. That's the secret that got out. You don't put the secret in the campaign. You build the campaign around the shape of the hole the secret leaves." She softened, fractionally, because she could see she'd pushed to the exact edge of what the work allowed and one inch past it was a locked room she had no right to. "I'm not asking you to play it for the album. I'm asking you to play it for *me*, once, so I can feel the centre, so everything I build points at it without saying its name. That's all. You can say no."
+
+He didn't say no. He didn't say yes either. He turned back to the desk, and his hand went to the file — the one he kept almost playing — and stopped, the way it always stopped, and Ella watched him fight a five-year war in the space of three seconds, and then he closed the laptop lid an inch, not opening it, not yet, and said, to the desk, "Not today."
+
+"Okay," she said. And meant it. And went back to her table, and let the door stay shut, because she'd learned the most important thing you can learn about another person's locked room, which was that you do not get to decide when it opens, you only get to be the kind of person it might, someday, open *for* — and that you become that person precisely by being willing to walk away from the handle.
+
+They worked the rest of the day in a silence that was not uncomfortable. That was the thing she noticed, packing up at seven, the grey gone full dark beyond the high window, the city's lights smeared in the condensation she'd specified for the whole campaign without knowing she was specifying her own evenings: that she'd spent nine hours three feet from a boy who terrified her and it had been the least lonely she'd felt in a room in years. Not because they'd talked. Because they hadn't had to. Two people working in the same quiet, each behind their own eyes, neither performing for the other — it was the opposite of the party, the opposite of every room she'd ever stood at the edge of with a clipboard. It was, she realised, pulling on the good coat, the first room in three years she hadn't had to manage.
+
+"Same time tomorrow," Cal said, not a question, as she reached the door.
+
+"Same time tomorrow," she said. And then, because she could never quite let a moment stay whole, because the strong one always reached for the joke to keep the undefended thing from showing: "Play me the centre eventually, V. I'll find out the shape of it from the outside if you make me, but it'll take longer and cost the label more, and Sasha will blame you."
+
+The corner of his mouth did something. "Goodnight, Ella."
+
+"Goodnight."
+
+She went down the stairs that smelled of old paper, and out into the rain, and she did not put her hand against the brick this time. She just walked, south, toward the bus, through the orange-lit wet, and she thought about the hand that went to the file and stopped, and the war she'd watched him fight in three seconds, and she understood with a small cold lurch that she was no longer keeping his secret because it was useful. She was keeping it because she wanted to be the person the locked room opened for. And that — that wanting — was the most dangerous thing she'd let herself feel since she was nine years old in a cold hall, and she had no idea what to do with it, so she did the thing she always did with dangerous wantings: she folded it small, and put it somewhere she thought she'd never find it, and went home to the launderette-warm dark to lie to her best friend by omission for the first of what would be many, many nights.
+
+---
+
+## ◆ xvi. The Cost of a Kept Secret
+
+*Ella*
+
+The lying was the part nobody warned you about.
+
+Not lying, exactly — Ella was scrupulous about that, had been her whole life, because an outright lie was a debt and she didn't take on debts. It was the *omission*, the careful editing of the day's events into a version safe for the dinner table, that turned out to have a weight, and the weight surprised her, because she'd thought of herself as someone who already carried everything and had assumed there was no room left for more. There was always room. That was the terrible thing she learned that first week: the strong one's pack has no bottom, you can always be handed more, the capacity is the curse.
+
+"How's the famous secret studio," Priya said on the Tuesday, sprawled across the front-room floor in the launderette-warm dark, eating cereal at nine p.m. because she was a marketing student and time was a suggestion. "Is the producer as mysterious in person? Tom's *desperate* to know who he is, it's all the lads talk about now, like — apparently there's a sweepstake. Tom's got a fiver on it being some session musician from the BBC orchestra moonlighting."
+
+And Ella, who told her best friend everything, who had told Priya about the boys and the breakdowns and the credit-card she'd quietly maxed in second year and the thing her mother said at Christmas that she'd never told anyone else — Ella looked at Priya's open, delighted, trusting face and edited.
+
+"He's a closed door," she said, which was true. "Keeps himself to himself. I mostly just work in the corner and he works at the desk and we argue about whether things are too clean." Also true. "I never even see his face properly, he's always at the screen." A lie, the first real one, small, load-bearing, and she felt it settle onto the pack with its little weight, and she hated it, and she did it anyway, because the alternative was handing Priya a secret that wasn't hers to give — *the producer is Cal, Tom's Cal, the fly-half, and nobody can know, and if I tell you then you're carrying it too and you'll have to lie to Tom, and Tom's in a sweepstake, and it spreads, it always spreads, a secret shared is a secret that's started to get out.*
+
+"Boring," Priya declared, returning to her cereal. "I wanted him to be, like, a tortured genius with a tragic past."
+
+Ella said nothing. She'd seen the hand go to the file and stop. She'd heard four notes through a door. She suspected, already, with the part of her that read the gap between what people said and what they meant, that *tortured genius with a tragic past* was closer to the truth than anything she could safely say, and that the not-saying of it was going to be the texture of her whole spring.
+
+It got worse on the Thursday — a week, exactly, since the studio; she noticed the symmetry and disliked it — when Tom came round, enormous, filling the doorway, filling the flat, beaming, and the conversation turned, as all conversations among the lads now apparently turned, to V.
+
+"You must have a theory," Tom said to Ella, settling onto the floor with the structural caution of a large man trusting a small rug. "You're in there with him. Come on. Even a vibe. Is he old? Young? Is he, like — is he *fit*? Priya needs to know if I should be worried."
+
+"You should always be worried," Priya said serenely.
+
+"I genuinely couldn't tell you," Ella said, and smiled, and felt the lie's weight, and watched Tom — kind, uncomplicated Tom, who covered for his best friend's disappearances without ever knowing what he was covering, who was sitting on her rug in a sweepstake to identify a man he ate breakfast with — accept her answer completely, trustingly, and move on, and she thought: *this is the cost. Not the danger of Sasha. Not the risk of exposure. This. Sitting in my own front room lying gently to two people I love, to protect a third person I've known for eight days, because he told me a true thing once instead of the brand answer.* She understood, watching Tom laugh at something Priya said, that she had quietly reorganised her loyalties in eight days — that a boy she barely knew now sat, in the secret architecture of her life, *above* her best friend and her best friend's lovely boyfriend, in the place reserved for the people you protect at a cost to yourself — and she did not know how that had happened so fast, and it frightened her, and she could not undo it, because you cannot un-know whose locked room you've decided you want to be the one it opens for.
+
+That night she lay awake in the launderette-warm dark and did the arithmetic the way Cal did it without either of them knowing the other was doing it three miles north. *The secret costs me Tom's full trust and Priya's full confidence and a small daily lie I have to keep telling. It costs me the easy intimacy I had with the two people in this city who are mine. And what does it buy. It buys me a project. And — be honest, Eleonora, do the real sum — it buys me a room where I don't have to manage anyone, and a boy who reads my hips, and the chance to be the person a locked door opens for. So the secret isn't useful. I lied to him and I lied to myself. The secret is expensive, and I'm paying gladly, and the gladness is the actual information. You don't pay gladly for useful. You pay gladly for —* and there she stopped the arithmetic, because the next word was a word she'd folded away at nine and was not ready to take back out, not for a boy she'd known eight days, not in the dark, not yet.
+
+She turned over. The dryers tumbled beneath her, the building's slow digestion of other people's ordinary lives. And she made herself a promise that she would break inside a month: *I will keep this transactional. I will build the best work of my life and I will protect his secret because it's tangled with my chance, and I will not, under any circumstances, let it become the other thing. I have a deadline and a degree and a mother at six o'clock. I cannot afford the other thing.*
+
+She had said almost the exact words to herself in this exact room two weeks ago, about a boy at a party. She did not notice the repetition. That was the thing about the seam she'd sealed at nine: it kept her from feeling the places where she was lying to herself, because feeling them would have required the very thing she'd folded away, which was the part of her that needed, and wanted, and could not always tell the difference between managing a feeling and having one.
+
+Three miles north, in the bare professional bedroom, Cal Vance was doing the same arithmetic about the same secret and arriving at the same false answer — *transactional, useful, clean* — and somewhere between them, in an unmarked room above a vintage shop, a locked file sat in the dark with four notes in it, waiting, the way the whole city seemed always to be waiting, for one of them to stop doing the arithmetic and simply, finally, let the breath go.
+
+That was Chapter One. A collision dressed as a transaction. Two people who read everyone meeting the one person they couldn't file, and calling it useful, and going home separately to lie to themselves in two warm dark rooms three miles apart — while the centre of gravity neither of them could see kept right on holding the shape of everything, and the spring came on, and the orbit tightened, and the held breath got harder, day by day, to keep holding.
+
+*[End of Chapter One — Collision. Continues in Chapter Two — Orbit.]*
