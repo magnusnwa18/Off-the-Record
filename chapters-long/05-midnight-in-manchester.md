@@ -262,9 +262,9 @@ Ella ran into Sasha once more, the following spring, at an industry thing in Lon
 
 "I know," Ella said, shaking it. "That's exactly why I won't. Thanks, Sasha." And she meant the thanks, because Sasha had, in her ruthless way, taught Ella the most useful thing she knew — that whoever frames the story owns what it means — and Ella had taken the lesson and used it for love instead of leverage, which was the only revenge worth having on a producer of people: to beat them with the one element they'll never understand.
 
-## Epilogue — One Year On
+## ◆ ix. The Records
 
-*Ella*
+*Cal*
 
 The first time Cal went back to the house — invited this time, *come to the house*, the inversion of the wound — his father had moved Jordan's records.
 
@@ -295,6 +295,58 @@ It still came at 6:02 — some things don't change, her mother would die before 
 "Bring him for Christmas," her mother said, near the end of one call. "The boy. Callum. With the brother and the music." A pause. "I have explained creative direction to everyone at the church and they are exhausted by me. Now I would like to explain *him.* Bring him. I will make too much food and your father will be unbearable about the rugby and Tioluwa will interrogate him and it will be a lot, and that is what a family is, omo mi. A lot. Held by people who stay." Another pause, the hard thing arriving. "I was wrong, you know. About the safe path. Not entirely — I still think you should have something behind you, I will say that till I die. But I watched you choose the unsafe true thing, and protect it when it cost you, and refuse the easy win, and I thought — *that is not the daughter who would have done law.* That is a better daughter than the one I was trying to make. So. I was wrong, and I am proud, and it is always *and*, and bring him for Christmas. Both names on the place card. Spelled right. Now eat something."
 
 And Ella sat in the launderette-warm dark — she and Cal kept the flat, even with the London seat, because some homes you don't give up — and felt the whole shape of the year, the climb out of the black hour, the reps, the truth told and re-told until it got light, and she thought about her mother's hand on a kitchen table next to her father's, not holding, just there, and understood that she'd spent her whole life learning the wrong lesson from that table — *the strong one carries it alone* — and that it had taken a ghost and a chapel and a brother's four buried notes to teach her the right one, which her mother had just said plainly down a phone line at 6:02: *a lot, held by people who stay.*
+
+## ◆ xii. A Rep That Went Wrong
+
+*Cal & Ella*
+
+It would be a lie to tell you the reps were all clean, that the ghost was exorcised in a chapel and never came back. He came back. That was the truth of the slow way — not that the wound vanished, but that they got better at catching it.
+
+It happened in the autumn, when Ella had started at Imogen's and the London-Manchester thing was new and hard, and an industry party put a photographer's hand on Ella's back to angle her for a shot, and Cal — there for once, down for a Knox thing — felt the old narrow vision come, the furnace, the three-steps-across-the-room thing, except this time worse, because the secret was out now and so was the relationship and so there was a *story* available, *Cal Vance's girlfriend*, and the protective thing curdled fast toward the possessive thing, and he said, in the car after, sharper than he meant, "You didn't have to let him do that," and heard his own father in it the second it left him.
+
+And Ella — who'd promised herself a year ago she'd name it every time — named it. Quiet, even, no heat, the way she'd learned. "That's the thing. The furnace pointed wrong. You said you'd put it down when I named it. I'm naming it." And she watched him, in the dark of the car, do the hardest rep — watched the furnace and the shame and the instinct to defend rise, and watched him *not* feed it, watched him breathe, the way he'd had to learn, and put it down.
+
+"You're right," he said. "I'm sorry. It's not — I know it's not about you. It's the story being out now, it's a new flavour of the scared, and I pointed it at you instead of feeling it, which is the exact thing." A breath. "Rep — I've lost count. Logged. I'll do better. Tell me again next time and I'll put it down faster."
+
+"I know you will," Ella said. "That's the whole reason I stayed. Not because you never get it wrong — because you put it down when I name it, faster each time. That's not a man who's fixed. That's a man who's *correctable*, and correctable's the only thing I ever needed, because nobody's fixed. My mum's not fixed. I'm not fixed — I still have to physically choose not to flinch when you're kind to me, a year in; I did it this morning when you'd made the coffee. We're not fixed. We're just both still doing the reps. That's the deal. That's the only deal there ever was." And she took his hand in the dark of the car, the burn-flinch overruled again, the choosing again, and they drove home — to the Manchester flat, the launderette one, the one they kept — both still doing the reps, both still choosing, which is the only honest ever-after there is.
+
+## ◆ xiii. London and the Flat
+
+*Ella*
+
+They kept the flat above the launderette. That surprised people — Ella with the London seat, Cal with the contract, both of them able now to live anywhere — but they kept the warm tumbling two-bed in Hulme, because some homes you don't trade up from, because it was the room where she'd built the worlds and he'd learned to be looked after, because the dryers' heartbeat through the floor had become the sound of a particular kind of safety neither of them had had before.
+
+The life was bicoastal in a small-island way — Ella down at Imogen's three days a week, up in Manchester the rest, the train south and the train north now a rhythm instead of a wrench; Cal's season and his open production schedule; the two of them passing through the flat and the studio-with-no-window, leaving each other notes and food and the heater on, a love conducted partly by text and train and entirely without the secrecy that had once made every hour feel stolen. It turned out the stolen feeling hadn't been the love; it had been the hiding. Out in the open, in the daylight, with both their names on everything, the love was less charged and more *true* — less like a held breath, more like breathing — which is what you actually want, in the end, from a person: not the thrill of the secret, but the plain miracle of the unhidden ordinary.
+
+Priya moved in with Tom; Ella kept the flat and a rotating cast of the people she loved passed through it. And her mother visited Manchester for the first time ever that year — got on a train to her daughter's city, the city she'd feared was taking Ella away — and Ella showed her the markets and the studio and the launderette-warm flat, and her mother stood in the front room with the dryers humming below and said, "So this is where you built yourself," and Ella said "yeah," and her mother nodded, and did not say it should have been done from a position of something, and that silence was its own enormous gift: the worry, finally and fully, become the *and.*
+
+## ◆ xiv. The First Credit
+
+*Cal*
+
+The first track Cal released with his own name on the front of it came out on an ordinary Friday in the new year, and it undid him more quietly and more completely than the chapel had.
+
+It was a small thing, objectively — a single for a young artist out of Salford, a girl of nineteen with a voice like a bruise, whom Cal had started working with because she reminded him, in the way she heard the gap, of Jordan, of himself at that age, of the thing that can't be coached. He'd produced it the way he produced everything, with Jordan's four notes somewhere in the architecture, the family signature. But this time, when it went up, the credit read — in full, in the daylight, where his father and the club and the scene and a quarter of a million strangers could all see it — *Produced by Cal Vance.*
+
+No *V.* No ghost. No grave with the lights off. Just his name, on his work, in the world.
+
+He sat in the studio-with-no-window the morning it dropped and refreshed the page and looked at his own name on his own track, and he felt the thing he'd spent five years certain he could never survive feeling — *seen, fully, for the truest thing I make* — and he survived it. More than survived it. He found that the name on the credit did not, as he'd feared his whole adult life, make the work stop being his. The opposite. For five years he'd believed *if it has my name on it, it stops being mine* — the load-bearing lie of the whole ghost — and here was the proof, in a Friday single, that he'd had it exactly backwards: the name didn't take the work away. The name was him finally *claiming* it, and the claiming was the most his any of it had ever been.
+
+He texted Ella a screenshot of the credit. She texted back: *Both names. Spelled right. I cried at my desk. Imogen asked what was wrong and I said "a boy signed his homework" and she said "ah, the producer" and I said "yeah, the producer," and Cal — she said it like it was the most normal thing in the world, that you exist, that you have a name, that you make things and they're yours. You're just a person who makes things now. In the daylight. Do you know how far that is from the corner of the loudest room in Fallowfield?* And he did. He knew exactly how far. It was the whole distance of the book, the whole climb out of the box room and the grave and the held breath, measured in one credit line on one Friday single, and he'd walked every inch of it, ten thousand reps, into the daylight, where his name was, where she was, where he finally got to be one person in one room.
+
+## ◆ xv. Gold
+
+*Ella*
+
+Knox's album went gold in the autumn — the pure one, the un-sugared one, the hundred-thousand-who-know that became, by the honest door, a great many more — and they marked it not with a party but with the five of them in the launderette-warm flat, because that was where things got marked now, in the warm, with the people who'd stayed.
+
+The plaque, when it came, Knox gave to Cal. "Your name should be on this more than mine, bruv," he said, "and one day it will be, but for now —" and he'd had it engraved, small, in the corner, under his own name, *Produced by Cal Vance*, and under that, smaller still, where you had to lean in to read it, the thing only the people in that room would understand: *and Jordan.* Both Vance brothers, on a gold record, in a launderette-warm flat, named at last.
+
+And Ella watched Cal hold a gold record with his dead brother's name engraved on it in a warm room full of people who loved him, and thought about the boy who'd stood in the corner of a party two years before, the only still thing in the loudest room, certain that being seen was the most dangerous thing there was — and she thought about herself, the girl against the opposite wall, doing the same exile, the watcher who couldn't be in a room, and she understood that the whole story, both their stories, had only ever been about one thing, the thing Knox had named and Sasha had finally conceded and her mother had said down a phone line at 6:02: that you cannot keep yourself safe by hiding the truest part of you, that the held breath and the strong-one's silence and the ghost's empty credit are all the same wound, and that the only cure — the only one, the expensive one, the one that takes ten thousand reps — is to let yourself be seen, all of you, in one room, by the people who stay.
+
+"Both names," she said, looking at the plaque, at the engraving, at him. "Spelled right."
+
+"Both names," Cal said. "Spelled right." And he kissed her in the warm tumbling dark, in the flat they kept, with a gold record and his brother's name and the people who'd stayed, and it was not a held breath, and it was not a secret, and it was not the corner of a loud room. It was just the unhidden ordinary miracle of two people who'd stopped performing being fine, and the dryers tumbled below them like a heartbeat, and the orange light came through the thin curtain, beautiful and slightly ruined, the way she'd taught herself to love it, the way she'd taught him.
 
 ## Epilogue — One Year On
 
