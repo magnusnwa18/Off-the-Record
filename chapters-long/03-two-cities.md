@@ -374,4 +374,30 @@ The two cities had held, all weekend. Two families, two truths, two brave senten
 
 ---
 
-*That was Chapter Three — Two Cities. Two families held up to the light: one that says* show me, *one that says* don't you dare lose it. *A daughter who set her weight down at a sink; a son who carried his to a rail and back; a best friend claimed in a car park; an artist who chose to be a true thing out loud; a rival who named the front wall from the back. The three words said in lamplight — and then, twelve minutes apart, the two emails that close the trap. The catch has stopped building. It is* falling. *Continues in Chapter Four — Reckoning.*
+## ◆ xi. The Room With the Contract In It
+
+*Cal*
+
+The meeting was in a glass room at the senior club's training ground, and Cal sat through it being the version of himself the room required — calm, hungry, coachable, the future a man had called him four times — while the attack coach who'd used the word *rare* talked about systems and minutes and a pathway, and Webb sat beside him radiating the contained delight of a man watching three years of being right pay out, and somewhere on the table, face down, was a number that would change his family's life.
+
+And Cal could not stop thinking about the due-diligence team.
+
+Because every warm word in that glass room had a shadow behind it now, and the shadow was a clause Webb had walked him through that morning in the car park: *the club may conduct background and reputational checks at its discretion.* Reputational. Background. A very good, very thorough, very-much-not-his-friend team, with a budget, looking at everything — and four miles east, above a vintage shop, a studio leased in the name *V*, photographable through a high window, with two hundred and fifty thousand streams attached and a feature artist who called him *bruv* and a fixer actively, that very week, seeding a "Who is V?" story to three outlets. The contract on the table and the secret in the Northern Quarter were on a collision course that any competent search would complete in an afternoon, and Cal sat in the glass room smiling at the attack coach with the cold clear part of him doing the arithmetic and arriving, for the first time, at a number that wouldn't come out at all: *you cannot sign this and keep the secret. The signing is the search. The search is the reveal. Sasha's story and the club's due diligence are going to arrive at the same locked door from opposite sides, in the same few weeks, and you are sitting in a glass room pretending you don't already know that the thing you've protected for five years cannot survive the thing you've worked for for sixteen.*
+
+"You've gone somewhere," Webb murmured, under the coach's monologue. "Come back. This is the best day of your career. Whatever the thing is —" the pause, the open door, the third or fourth time he'd held it "— it's going to be a worse day when you tell me than it would've been last week, and a worse one next week than today. That's how these things work, son. They don't get cheaper. Tell me before the team does. I'm begging you, in my way."
+
+"There's nothing to tell," Cal said, and shook the attack coach's hand, and the number stayed face down on the table, and the window — that everyone kept naming, that Ella had watched him fail to climb through at a rail, that his father had cracked open over a fry-up, that Webb had begged at twice — finished, somewhere in that glass room, the long quiet journey from *closing* to *closed.*
+
+He drove back to the studio that evening to find Ella already there, the corner table light on, her face composed into the particular professional calm he'd learned meant she was holding something heavy and not yet ready to set it down — and he had his own held thing, the contract, the collision he could now see coming — and the two of them sat in the warm room each carrying half of the same catastrophe without telling the other, because they were both, still, after everything, people who carried things alone to spare the person they loved, which was the one fault the whole spring had failed to teach them out of, and which the reckoning was about to teach them the hard way, in the worst order, at the worst time.
+
+"Good day?" she said.
+
+"Best day of my career," Cal said. "You?"
+
+"Huge day," Ella said. "Career-making, honestly."
+
+And they smiled at each other across the warm room, each holding a closed trap the other couldn't see, and neither said the true thing, and the dryers of her flat tumbled three miles south, and the orange rain came down, and the catch — patient, building all spring, two jaws and a window and a fixer's smile — fell.
+
+---
+
+*That was Chapter Three — Two Cities. Two families held to the light: one that says* show me, *one that says* don't you dare lose it. *A daughter who set her weight down at a sink; a son who carried his to a rail and back; a friend claimed in a car park; an artist who chose to be true out loud; a rival who named the front wall from the back. The three words said in lamplight — then the two emails twelve minutes apart, the contract face-down on a glass table, and two people smiling across a warm room, each holding half the same catastrophe alone. The window is closed. The catch is* falling. *Continues in Chapter Four — Reckoning.*
