@@ -320,4 +320,36 @@ And Ella sat on the cold step in the orange light with cold chips and a warm boy
 
 The city, beautiful and slightly ruined, witnessed it without comment. The last bus was gone. There would not be another till morning. Neither of them moved to find one.
 
-*[End of the rising movement of Chapter Two. Continues — the secret relationship, the stolen weeks, and the first hairline crack as the project starts to get loud.]*
+---
+
+## ◆ viii. The Quietest He Had Ever Been
+
+*Cal*
+
+They didn't tell anyone. That was the first decision, made silently and mutually on the walk home from the chip shop as the sky went from bruise to grey, and it was the right one and it was also the thing that would eventually cost them, though neither could have known that yet. If the scene found out V was seeing the project's art director, it became gossip — became a story, became exactly the loose thread Sasha was already pulling at. And if the rugby world found out Cal was *anything* in the music scene, the whole edifice came down: the contract, the father, the locked room with the loaded gun in it. So they were careful. They were so careful. And the carefulness, perversely, made it more — every stolen hour in the unmarked studio more charged, every glance across an industry room more loaded, every late walk through the wet city more *theirs* precisely because no one else could have it, or even know it existed to be had.
+
+Here was the thing Cal had not expected, the thing that undid the cool man completely: a relationship conducted in secret belongs entirely to the two people in it. A public thing belongs partly to everyone who sees it — to the friends with opinions, the family who weigh in, the city that files you under *couple* and hands you a script. Theirs belonged to no one. It existed only in one unmarked room above a vintage shop and in the gaps between two impossible schedules, undiluted, uncommented-on, unwitnessed — and Cal, who had spent his entire life being watched, who had never once been in a room without performing for it, discovered that the secret was the first space he'd ever occupied where the static simply switched off. He had thought the studio did that. He'd been wrong, the way he'd been wrong about so much; it had never been the room. It had been being unwatched. And now there was a person in the unwatched space with him, the most watching person he'd ever met, and the static still stayed off — better than off, it inverted, it became its opposite, a quiet so deep he could hear himself think for the first time since he was sixteen.
+
+He learned her. This was the part that finished him.
+
+He learned that she ran on three hours' sleep when she was building something and then crashed for twelve, that her body kept the books even when her will refused to. He learned that she called her mother every evening at six and put on a voice for it, a particular daughter-voice, and was wrung out for an hour afterward, sitting very still, and that the best thing he could do in that hour was nothing, just be in the room, warm, undemanding, the heater on. He learned that she'd been the strong one so long she didn't know how to be looked after and flinched from it like a hand near a flame — so he learned to do it sideways, the no-invoice way, the food that appeared, the deadline quietly rescued, the weight lifted before she'd announced she was carrying it. Never named. Never a debt. Just the weight, briefly, off — the way she'd taken the weight of Jordan off him that first night without trying to lift it too soon.
+
+And she learned him, which was harder, because there was more locked away and the locks were older. She learned that the stillness was a held breath and not a calm. She learned that when his vision went narrow she was to name it, plainly, and that he would put it down — that the furnace was real and that he was, against everything his father had modelled, genuinely trying to make it warmth. She learned the four notes were everywhere once you knew to listen, and that he'd started, since the night of the voice note, to lay a *fifth* thing over them in the newest tracks, a brightness, a warmth across the grief, and that she was the brightness, that he'd put her in the top of his brother's melody without quite meaning to, the living over the lost, and that this was the most enormous thing he had ever done and he could not say it out loud so he said it in the only language he and Jordan had ever fully shared, four feet down, in the gap, in the note he didn't play.
+
+"You're doing the thing," she said one night, head in his lap on the battered sofa while he worked one-handed on a mix, the other hand in her hair, the city dark and wet and theirs below. "The sideways looking-after thing. The tofu was here when I got here. I didn't order it."
+
+"Don't know what you mean."
+
+"I mean I notice. I notice everything, it's my whole job, you can't sneak a kindness past me." Her eyes were closed. The track played low. Jordan's four notes were in it somewhere, climbing and falling, and now, over them, faint, the brightness. "I just — let you. Which I don't do. I don't let people. It's the most frightening thing I've ever done, letting you, and I do it every day now, and it gets very slightly less frightening each time, and I wanted that on the record."
+
+Cal looked down at the one person who'd ever walked into the room where he kept the only true thing about himself and decided to stay — to sit on the step, to listen under the kick, to let the loaded gun stay holstered when a launch was on the table — and he felt the furnace turn all the way to warmth, no fire left in it, and he understood that he had been wrong his entire life about what wanting was. He'd thought wanting was a problem to solve, a thing to lock down, his father's grip. It wasn't. Wanting, done right, was just this: keeping the room warm, leaving the price off, putting your own weight down at the same time as you took someone else's, in the same quiet, where no one could see, asking for nothing back except that they let you.
+
+"It's on the record," he said softly, and kept his hand in her hair, and let the city tumble on below, and for a stretch of weeks — five of them, he'd count later, five luminous stolen weeks — two people who had spent their whole lives being seen by everyone and known by no one got to be, in one unmarked room, fully and dangerously and entirely known.
+
+He should have known the bill always comes for that. In his experience it always did. But he was happy — properly, for the first time he could remember, the kind of happy that made even a man who calculated everything forget, for a few weeks, to run the odds — and happiness is the one condition under which the careful get careless, the watched stop watching the exits, the ghost forgets he is supposed to already be gone.
+
+The catch was already in the building. It was wearing box-fresh trainers and an understated coat and a smile with no eyes in it. But for five weeks he didn't hear it on the stairs, because for five weeks, for the first time in his life, Callum Vance was not listening for the thing that takes people away. He was just — there. In the warm. With her. Putting the weight down.
+
+It was the happiest he would ever be before everything broke, and some animal part of him knew it, and held on, and did not look at the door.
+
+*[End of Chapter Two's central movement. Continues — the first hairline crack: the project gets loud, Sasha presses, and the stolen quiet starts, at the edges, to fray.]*
