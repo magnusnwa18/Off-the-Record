@@ -57,7 +57,27 @@
 - Runs the most respected new creative studio in London. Offers Ella a **junior creative director** seat (Sept start). Straight-talking, powerful, doesn't perform power. "Most people never find out who they are because they never have to choose between what they want and who they want to be."
 
 ### Minor / referenced
-- **Marsh** — academy backs coach. **Declan** — an industry manager (hand-on-back incident, Ch.3/Orbit). **Tobi** — Ella's cousin (did the Hargreave scheme; aunties compare). **Uncle Femi** — failed restaurant (cautionary family tale). The **protein-sponsor man**; a **tunnel agent** (Ch.4) who senses Cal "has time… something with rhythm."
+- **Marsh** — academy backs coach. **Marcus Webb** — Cal's agent (slick, signed him at 19; the "no small secrets at this level" warnings). **Declan** — an industry manager (hand-on-back incident, Ch.2/Orbit). **Tobi** — Ella's cousin (did the Hargreave scheme; aunties compare). **Uncle Femi** — failed restaurant (cautionary family tale). The **protein-sponsor man**.
+
+---
+
+## SUBPLOTS / B-PLOTS (woven through all chapters; theme rhyme = authenticity vs. performance, being seen vs. selling the safe version)
+
+### B-PLOT 1 — Priya & Tom (the honest mirror / the "normal" couple)
+The foil to Ella & Cal's secret, careful romance: Priya & Tom are loud, public, uncomplicated. **Their arc:** Tom is warm but conflict-averse and keeps Priya as "the fun girlfriend" — hasn't introduced her to his rugby world's "serious" side or his family, defaults to the easy surface. Priya performs total confidence but privately fears she's only ever "the fun one," never the one taken seriously. **Mini-crisis:** a rough patch where Priya pulls back; resolved when Tom learns to *show* her she's seen (and Priya learns to *ask* to be). **Dramatic irony engine:** Tom runs the "who is V?" sweepstake and deploys Priya to extract V's identity from Ella — so Ella's secret-keeping (of Cal) quietly costs her the friendship's openness; Ella can't be fully present for Priya's crisis because she's guarding her own. Rhymes with main theme. Threads every chapter.
+
+### B-PLOT 2 — The degree show & Margot Hale (Ella's professional stakes, independent of Cal)
+- **Margot Hale** — Ella's chief rival on the creative-direction course. Polished, posh, well-connected (her father knows people); doing a slick *fictional* luxury-brand project — the "safe, controllable, no-real-client" path Ella rejected as cowardice. Not a villain; a genuine talent and a real mirror: taste-without-risk vs. Ella's risk-with-a-real-client. Needles Ella with backhanded compliments; secretly threatened by her. Possible late turn: a moment of grudging respect or alliance.
+- **Dr. Annan** — the course leader / Ella's tutor. Dry, exacting, secretly championing Ella to the external assessors. Voices the academic stakes.
+- **The degree show** — end-of-year climax where recruiters attend; the real-client Knox work vs. Margot's polished fiction is the contest. Ties into Imogen's offer (Ch.4/5).
+
+### B-PLOT 3 — Knox's arc (authenticity in the music world)
+The label (via **Sasha**) pushes Knox toward a commercial pop **feature/crossover single** that would compromise the V sound for a bigger look. Knox is tempted (the streams, the "moment"). Cal defends the sound; Ella's whole built world is at stake if Knox sells out. Mirrors the central theme and gives both leads independent scenes. Knox's choice (stay true / go commercial) pays off near the climax.
+
+### Subplot continuity notes
+- Priya does NOT learn V = Cal (Ella holds it); Priya's extraction attempts fail, straining-but-not-breaking the friendship.
+- Margot does NOT know about Cal at all (pure professional-world thread).
+- Keep Tom unaware that the V he's betting on is his best mate, until the public reveal (Ch.5).
 
 ---
 

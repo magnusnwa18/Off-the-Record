@@ -47,8 +47,10 @@ A book-writing toolkit lives in **`.claude/skills/`**. Load and apply the releva
 - `git push -u origin claude/tender-feynman-SqN9U`; retry on network errors (2s/4s/8s/16s).
 - Do **not** open a PR unless explicitly asked.
 
-## Chapter length policy (author decision, current)
-Chapters run to their **natural strong length**, not a forced 45k each — priority is a complete, well-paced novel over hitting a word quota. Ch.1 (~30.6k) and Ch.2 (~14.5k) are **complete**. Expand later only with scenes that earn their place.
+## Chapter length policy (author decision, current — UPDATED)
+**Target ~45,000 words per chapter.** Earlier chapters tapered (30k→14k→7k); the fix is to **grow each chapter to target by weaving in the B-plots** (see `STORY-BIBLE.md` → SUBPLOTS), NOT by padding the main scenes. Every added scene must (a) advance a subplot, (b) rhyme with the theme (authenticity vs. performance), and (c) not contradict or dilute the main A-story. Order of work: bring Ch.2 and Ch.3 up to ~45k via subplot scenes, top Ch.1, **then** draft Ch.4.
+
+The three woven B-plots: **(1) Priya & Tom** (the honest mirror; the V-sweepstake irony), **(2) the degree show & Margot Hale** (Ella's professional stakes), **(3) Knox's commercial-feature temptation** (authenticity in the music world).
 
 ## Current next action
 Draft **Chapter Three — Two Cities** (`chapters-long/03-two-cities.md`): Ella's weekend home in South London for her mother's 50th (the family table, telling them the truth about her career, Tioluwa); Cal inside the rugby/family machine; **the big match** where both worlds stand in one stadium — his father in the stand, Ella secretly watching, the full weight Cal carries made visible — and Cal nearly telling his father the truth at the rail. Continuity: Ella & Cal are *already secretly together* (since the Ch.2 kiss, ~5 weeks); Ella knows about Jordan; the catch (Sasha/offer/leak) is building toward Ch.4 — Reckoning.
