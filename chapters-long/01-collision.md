@@ -641,3 +641,67 @@ She got the job. Of course she got the job. There was never, from the moment the
 And through all of it Cal stood at his desk in the room where he kept the only true part of himself, and watched a stranger he'd lost to at a party become, in the space of forty minutes, the keeper of his secret, the architect of his world, and the single greatest threat to the life he'd spent five years building — and felt, underneath the cold clear understanding of how much trouble he was in, a thing he had not felt since a box room and a brother and the word *listen*, a thing he had no business feeling, a thing that frightened him more than Sasha and Webb and his father and the whole machine combined.
 
 He felt seen. And he didn't want it to stop.
+
+---
+
+## ◆ xiv. The Deal
+
+*Ella*
+
+It took the others forty minutes to leave, which felt to Ella like four hours and also like no time at all, because she spent every second of it in two places: present in the room, gracious, professional, locking in the thing she'd just won — *yes, I can start Monday; yes, I'll send the rate card tonight; yes, I'd love that, thank you, genuinely, thank you* — and simultaneously somewhere a half-step behind her own eyes, watching the producer at the desk who was the boy from the party, running the arithmetic, trying to understand the size of what she'd walked into.
+
+Because the size of it kept changing. At first it was just *the producer is the party boy, that's awkward, manage it.* Then, watching him move around the room, watching the others treat *V* as a kind of weather they were lucky to stand in, watching the camera never once point at his face — she clocked that. The videographer filmed everything, the cans, the foam, the records, Knox, Sasha, *her* — and never once the producer, and it wasn't an accident, it was a rule, a rule everyone in the room knew and obeyed, and the rule was the actual shape of the secret. And the size of it changed again: *no one knows who he is. That's the whole strategy. V has no face on purpose.* And then, last, slowest, the size of it changed into the thing that made her cold: *and I know. I'm the only person who walked in here today who can connect "V" to a name, a face, a life — because I met him before, as Cal, as Tom's mate, as the fly-half. I am the single point of failure in a secret a quarter of a million people would want to solve.*
+
+She did not let any of it show. She had twelve years of practice not letting things show; she had a mother's midnight breath in her chest; she shook the right hands and said the right things and let Sasha air-kiss her and felt Sasha's eyes do their slow inventory and gave Sasha precisely nothing, and she let Knox hug her and *did* let a little real joy through for that, because Knox was joy, Knox was uncomplicated, Knox had said the word *yes* about her work out loud — and then, finally, miraculously, they were going, clattering down the stairs that smelled of old paper to find food, Sasha's heels and the A&R's box-fresh trainers and Knox's bright laugh receding, and the studio door swung shut behind them, and the room dropped into the particular ringing quiet of a space that has just been full and is suddenly not.
+
+And it was just the two of them.
+
+Ella took her time turning around. She finished sliding the printed world back into the leather folder, squared the pages, gave herself the three seconds, because the person who speaks first in a silence like this is the one who needs it more, and she had decided, somewhere around the second hand-shake, that it was not going to be her. She closed the folder. She turned.
+
+Cal was watching her. Of course he was. He'd been watching her the whole time, she'd felt it, the specific weight of his attention that she'd felt at the party before she even knew his name — except now the detachment was gone from it entirely, and what was left was so undefended that she almost looked away, almost did the apology, and didn't, because looking away first was a thing she'd quit at eighteen.
+
+"So," she said. "'V.'"
+
+"Ella."
+
+So he knew her name. He'd got it from Tom, then, sometime in the weeks between; he'd carried it. She filed that and refused to feel it. "You're the ghost," she said slowly, fitting the pieces together out loud, watching his face to check the fit. "The producer no one can name. The whole no-sign-on-the-door, no-face, V-and-nothing-else thing — that's not mystique for the brand. That's not a marketing decision someone made in a meeting. That's *real.* Nobody knows. Do they." She watched it land. "Not Tom. Not the lads. Not your —" she gestured vaguely, the word *family* arriving and being set down unsaid because she could see, suddenly, that it was the load-bearing word and she didn't have the right to it yet. "Nobody."
+
+"No," Cal said. One word. But he didn't reach for a deflection, didn't do the charm, didn't run a play — she watched him not do it, watched him decline the ten easy exits a man like him would have stacked and ready, and the declining told her more than the word.
+
+"Why?" she said.
+
+She expected, honestly, the brand answer. The strategy answer. The thing Sasha would have said: *the mystery's worth more than the face, scarcity, intrigue, you can't be overexposed if you're never exposed.* It would have been a fine answer and it would have told her he was just another careful operator and it would have let her file him safely and go home and start the best project of her life with a clear head.
+
+He didn't give her the brand answer.
+
+He was quiet for a moment, looking at her in the grey light from the high window, the city going about its indifferent late-afternoon business below, and then he said — simply, flatly, with none of the swagger and all of the stillness — "Because if it has my name on it, it stops being mine."
+
+And Ella, who read everything, who had spent her whole life reading the gap between what people said and what they meant, heard the enormous unsaid thing under those eight words the way you hear the note that isn't played — heard a whole locked room behind them, a name on a door, a held breath, a reason that had nothing to do with branding and everything to do with the word he'd set down unsaid — and she understood that she had not, in fact, won a styling job today. She'd won something with weight in it. She'd walked up a staircase for her future and walked into someone's secret, and the two were now the same thing, knotted at the root, and there was no clean way to hold one without holding the other.
+
+"Okay," she said, finally, after a silence she let run as long as it needed to, the way he'd taught her at the party without meaning to. "Then I'll keep it. Your secret. V." She put the leather folder under her arm. "Because I need this project more than I've ever needed anything, and you need it quiet, and those two things point the same direction, so we have a deal. I won't tell Tom, I won't tell Priya, I won't tell Sasha if she puts a knife to my throat — and she will try, by the way, she's already trying, she clocked the half-second when you let go of my hand too slow, so you'll want to work on that." She watched that land too, watched him register that she'd seen Sasha see it. "I'll keep it because it's useful to me. That's the deal. Clean. Transactional. Don't make it more than that."
+
+She didn't know, saying it, that it was a lie. She thought it was the truth. She thought she was protecting herself by naming the thing as a transaction, building a wall of her own, because a wall is how you stay the strong one, the easy one, the one who manages and doesn't need. She would only understand weeks later, on a chip-shop step at three in the morning, that she'd kept his secret from the first afternoon not because it was useful but because he'd told her the true thing instead of the brand answer, because a boy had stood in his own locked room and handed her the key rather than the lie, and that had landed in a place in her that had been folded shut since she was nine, and the landing was the actual reason, and the *useful* was the posture she put over it.
+
+But that was weeks away. For now she made it transactional, because transactional was safe, and she turned for the door.
+
+"Ella." His voice stopped her with her hand on the bright-polished handle. She didn't turn around. "Thank you. For —" a pause, and she could hear him choosing, spending carefully, "— for 'we've met.' That was the right call. I'd have got it wrong. I'd have either over-explained or frozen, and either one and Sasha's got her story by now. You bought us both time without thinking about it. I won't forget that."
+
+And Ella stood with her hand on the handle and her back to him, in the doorway of the room that was about to become the most important room of her life, and the corner of her mouth did a thing she was glad he couldn't see.
+
+"I did think about it," she said, to the door. "I think about everything. That's the whole problem with me." A beat. "And I want you to know I'm only keeping the secret because it's useful. Not because you told me the true thing instead of the brand answer. Not because of any of that."
+
+"Course," Cal said, and she could hear, in the single syllable, that he didn't believe her, and that he was right not to, and that he was going to be gracious enough not to say so — and that, somehow, was the thing that nearly undid her, more than the secret or the job or the inside-of-his-head track still echoing in the room: that he'd read *her* hips for once, read straight past the *useful* to the thing underneath, and had decided, in real time, to let her keep the posture. To not make her say it. To hand her the dignity of the lie the way she'd handed him the time.
+
+"Course," she echoed.
+
+And she went, down the stairs that smelled of old paper, out into the grey street and the beginning of the evening's fine orange rain, and she made it exactly to the corner of the block, out of sight of the high window, before she had to stop and put her hand flat against the cold brick and breathe — in for four, out for four — because she had just won the best thing and walked into the most dangerous thing in the same forty minutes, and because somewhere above her, through the floors, faint, she could hear that he'd started the track again, the inside-of-his-head one, the one with the four notes she'd half-known through the door, and she stood in the rain at the corner listening to the centre of Callum Vance come down through a hundred-year-old building, and she did not go back up, and she did not quite leave either, not for a while.
+
+When she finally walked on toward the bus, she got out her phone, and she did not call Priya, and she did not call Tio, though she'd promised Tio she'd tell her everything on Sunday and this was certainly everything. She held it instead. For the first time in her life she'd been handed a secret worth keeping and she found she wanted to keep it the way you keep a held breath — not because she'd promised, but because letting it out into the air, into a phone call, into Priya's delight, would make it a *story*, and she understood already, with the part of her that built worlds for a living, that the second a secret becomes a story it stops being yours.
+
+*Like a secret that got out,* she'd said, in the studio, about the music. She hadn't known she was describing the next four months of her own life.
+
+She put the phone away. She got on the bus. She rode it south through the orange-lit rain to the launderette-warm flat, and she did not sleep that night either, but for the first time in two months it was not the work keeping her up — it was a boy who'd handed her a key instead of a lie, and a melody she couldn't place, and the dangerous, unfamiliar, undefended feeling of having been read, all the way down, by the only other person she'd ever met who lived a half-step behind his own eyes.
+
+The deal was struck. Both of them thought it was clean. Both of them were already, quietly, in the warm tumbling dark of their separate rooms, beginning to lie to themselves about it — and that, more than the party, more than the studio, was the true collision: not two people meeting, but two people each deciding, on the same grey Thursday, to call the most dangerous thing that had ever happened to them *useful*, and to mean the opposite, and to find out together, slowly, in a room above a vintage shop, exactly how long a person can hold a breath before the body simply, finally, insists on letting it go.
+
+*[Chapter One continues — Ella's first working week and the establishing of the deal's daily reality lead into Chapter Two: Orbit.]*
