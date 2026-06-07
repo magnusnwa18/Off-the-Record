@@ -190,4 +190,42 @@ She let herself feel it the whole walk home. The wanting. Undefended, un-folded,
 
 It was the closest she had come, since she was nine, to letting herself have something. And the city, beautiful and slightly ruined, orange and wet and indifferent, witnessed it the way it witnessed everything: without comment, and without ever once looking away.
 
-*[Chapter Two continues — the furnace under the lid (Cal), the warehouse shoot, and the chip-shop step at three a.m.]*
+---
+
+## ◆ v. The Furnace Under the Lid
+
+*Cal*
+
+The problem with finally wanting something, Cal discovered, was that it did not arrive alone. It dragged the rest of him in behind it — the locked rooms, the held breath, the five years of intensity he'd poured into a sport and a sound precisely so it would have somewhere to go that wasn't a person. He had thought he was a cool man. He had built a cool man, carefully, over years, ten thousand reps of stillness. It turned out the cool man was a lid, and Ella Savage-Oluwa had eased it off without trying, and underneath it Cal Vance was not cool at all. Underneath, Cal Vance was a furnace, and now the furnace had a direction, and the direction was a person, and that frightened him more than anything Sasha or his father or the leak-that-hadn't-happened-yet could do.
+
+He found out how much at a thing of Knox's — a low-key album playback in a bar off Stevenson Square, industry only, the kind of room Sasha curated and worked like a croupier. Ella was there in her professional capacity, and she was *good* at it, better than good; she moved through the industry crowd like she'd been doing it a decade, reading every room within the room, and Cal stood in his corner being V, the silent magic no one could place, and watched a man he half-recognised — Declan, a manager, older, the practised charm of someone who'd learned women were a category of opportunity — put his hand flat on the small of Ella's back to steer her toward someone.
+
+Cal's vision did a thing he did not like. It went very clear and very narrow — the counting stillness, except not calm at all, the opposite of calm, the stillness of a held thing about to stop being held. He was three steps across the room before he'd decided to move, and he caught himself, hard, mid-stride, and stopped, and stood there with his heart doing something violent and stupid, appalled at himself, because he recognised the feeling. He'd grown up inside it. It was his father's thing — intensity that confused itself with ownership, love that arrived as control, the grip on the shoulder that ran a whole life. *I poured it into the wrong place,* he thought, frozen between his corner and her, *and now it's pointed at a person and it wants to manage her, protect her, decide things for her — it wants to be my dad, and she is the last woman alive who would survive being managed.*
+
+Ella handled it herself, of course. She stepped neatly out from under Declan's hand without seeming to, redirected the whole interaction, kept her smile, gave the man precisely nothing — she had never needed rescuing, would have been *insulted* by rescuing, the rescuing would have been an act of war against the entire self she'd built. Cal watched her not need him and felt two things at once, and the order they arrived in mattered: first the ugly thing, the disappointment that she hadn't needed him; and then, right behind it, the better thing, the relief, the *good, she's exactly who I thought she was, she doesn't need a bodyguard, thank God, because I would make a terrible one and a worse cage.*
+
+She found him in his corner later. She read his face the way she read everything.
+
+"You went somewhere," she said. Low. Even. No anger in it, which was worse than anger, because it meant she'd thought about this before it happened, had it ready. "When Declan put his hand on my back. I watched you take three steps and stop."
+
+"I'm fine."
+
+"You're not, and I want to be really clear about one thing, because it's the thing that ends us if we get it wrong." She kept her voice down, steady, and there was no heat in it, only a hard-won clarity. "I will not be a thing you protect. I've spent my whole life being the strong one, and I am not trading one kind of carrying for another. If you go full caveman every time a man stands near me — if you decide what I can handle and manage me for my own good — this is over, and I'll mean it, because I've watched that movie my whole life with the genders the other way round and I know how it ends. I need a partner. Not a bodyguard. And definitely not an owner."
+
+It landed exactly where it should have, in the part of him that was his father's son. He made himself breathe. The narrow vision widened back out.
+
+"You're right," he said. "I'm sorry. And I need to tell you the true version, because you'll find it anyway." He looked at her. "When I want something, I want it like a problem I have to solve. All the way in. There's no setting between off and everything — it's how I am with the rugby, with the music, with — I go to the bottom of things. And I've never once pointed it at a person, because I watched what it did to my dad, the way his went bad, turned into a grip, a touchline, a project he made out of his own kids. So I don't actually know how to aim this at you without it becoming the thing you just described. I'll get it wrong. Not because I don't respect you — because I've never done it before and the only model I had for it is the man I'm most afraid of becoming." A pause, and then the real offer, the only one he could honestly make. "So here's the deal I can actually keep. Not that I'll never get it wrong. I will. The deal is: you tell me when I do, and I listen, every time, and I put it down. Corrigible. That's the promise. Not perfect. Correctable."
+
+Ella looked at him for a long moment, and something in her face softened, because that — she'd tell him later — was the exact right thing, the realer thing: not a vow to be flawless, which is a lie everyone breaks, but a vow to be *correctable*, which is the only promise between two people that's worth anything, because it's the only one a human can actually honour.
+
+"Okay," she said. "That's a deal I'll take." And then, because she could never let a moment stay heavy, because the strong one always reached for the joke: "Caveman."
+
+"I didn't even do anything. I took three steps."
+
+"You took three steps and made a *face.* You've got a face, Cal. It said, 'I have considered four ways to remove this man's hand and I'm selecting the most merciful.'"
+
+"Three ways," Cal said. "I'm not as far gone as you think."
+
+"You're exactly as far gone as I think," Ella said, "which is the problem, and also, God help me, the appeal," and she went back into the room to finish working it, and he let her, and that was the lesson, the whole lesson of those weeks compressed into one bar room: the furnace did not get to be a leash. He could feel the heat and not feed it into another person. It was the hardest rep he had ever attempted, harder than the flat pass, and he practised it the same way — ten thousand times, getting it wrong, being told, putting it down — and slowly, over the spring, under her steady unsentimental correction, the furnace started to learn the one thing his father's never had: how to be warmth instead of fire. How to heat a room instead of burning down the person standing in it.
+
+*[Chapter Two continues — the warehouse shoot, the long walk, and the chip-shop step at three a.m.]*
