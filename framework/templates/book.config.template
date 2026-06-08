@@ -12,6 +12,9 @@ WORD_FLOOR=15000         # hard minimum words per chapter
 TOTAL_TARGET=90000       # whole-book target
 SCENE_MARK="◆"           # scene divider symbol used inside chapters
 
+# Drafting
+COMPRESS_DRAFT=false     # true = draft with compress-fiction codec (~20x fewer output tokens)
+
 # Git
 BRANCH="main"            # working branch to develop + push to
 

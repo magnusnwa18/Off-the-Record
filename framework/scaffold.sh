@@ -84,10 +84,13 @@ cat > "$TARGET/CLAUDE.md" <<EOF
 > Read first, every session. This is a **$GENRE** novel built with The Novel Engine (\`framework/\`).
 
 ## Use these skills (mandatory)
-The seven craft skills live in \`.claude/skills/\`. Load the relevant one for each task:
+The craft skills live in \`.claude/skills/\`. Load the relevant one for each task:
 structure-storyteller (architecture), prose-craftsman (line voice), continuity-keeper
 (\`STORY-BIBLE.md\` = source of truth), project-manager (\`PRODUCTION-PLAN.md\` = tracker),
 revision-partner (stage/process), motivation-coach (unblocking), research-integrator (accuracy).
+
+## Drafting mode
+- **Compressed drafting:** ${COMPRESS_DRAFT:-false}. When \`true\`, draft chapters with the **compress-fiction** skill (~20x fewer output tokens) → \`chapters-long/chNN-compressed.md\`, then expand outside this env with \`compress-fiction/expand-prompt.md\`. When \`false\`, draft normal prose. (See \`framework/METHOD.md\` Phase 4.)
 
 ## The framework
 - **\`framework/METHOD.md\`** — the build pipeline (Phase 0 spec → 5 revise) + the non-negotiable Laws.

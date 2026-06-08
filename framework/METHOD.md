@@ -37,7 +37,10 @@ Draft **front to back, chapter by chapter, scene by scene.** Protect momentum; k
 - After each pass: **update the tracker, commit, and push.** Progress must be visible and never lost.
 - Reach the word floor by **adding story (B-plots), never padding** (see Law 4).
 - Check each scene against the **per-scene gate** in `QUALITY-CHECKLIST.md` as you go.
-**Output:** `chapters-long/NN-title.md`, each ≥ floor. **Gate:** the per-chapter checklist.
+
+> **Optional token-saving mode — compressed drafting (skill: `compress-fiction`).** When output tokens matter, draft each chapter in the compression codec (~20x fewer output tokens): full literary quality, spelled compressed, with structural IR headers. Save as `chapters-long/chNN-compressed.md`, then expand cheaply outside this environment with a decoder model (`compress-fiction/expand-prompt.md`). **Trade-off:** compressed drafts aren't human-legible in place and can't be line-edited until expanded — use it for bulk output you'll expand elsewhere, and draft uncompressed when a chapter needs in-session reading/revision. A project turns this on by stating it in its `CLAUDE.md`.
+
+**Output:** `chapters-long/NN-title.md` (or `chNN-compressed.md`), each ≥ floor. **Gate:** the per-chapter checklist (run it on the *expanded* prose if compressing).
 
 ## PHASE 5 — REVISE  *(skill: revision-partner orchestrates; structure → prose → continuity, in that order)*
 Only after the draft is whole. **Structural revision first** (does it work?), **then** line revision (does it sing?), **then** the polish/error sweep. Never line-edit a scene that might get cut. One focus per pass; capture other issues for later passes.
@@ -76,6 +79,7 @@ Only after the draft is whole. **Structural revision first** (does it work?), **
 | Working across sessions; stage-aware revision | **revision-partner** |
 | Stuck, blocked, lost momentum | **motivation-coach** |
 | Authentic setting / factual accuracy | **research-integrator** |
+| Drafting at ~20x fewer output tokens (optional) | **compress-fiction** |
 
 ---
 

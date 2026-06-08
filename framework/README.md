@@ -7,7 +7,7 @@ This folder turns the way *Midnight in Manchester* was written into a **repeatab
 
 ## The idea in one paragraph
 
-Quality fiction at length is not magic — it's a **spec** (who/what/why, the theme-as-argument, the voice, the motifs), an **architecture** (chapters that each do a job, escalating via cause→effect), a **continuity ledger** (so nothing drifts), and a **production discipline** (scene-by-scene, no padding, commit every pass, a quality gate per chapter). The seven craft skills in `.claude/skills/` are the *engine*. This framework is the *chassis and the assembly line* that drives them the same way every time.
+Quality fiction at length is not magic — it's a **spec** (who/what/why, the theme-as-argument, the voice, the motifs), an **architecture** (chapters that each do a job, escalating via cause→effect), a **continuity ledger** (so nothing drifts), and a **production discipline** (scene-by-scene, no padding, commit every pass, a quality gate per chapter). The craft skills in `.claude/skills/` are the *engine* — seven for quality (structure-storyteller, prose-craftsman, continuity-keeper, project-manager, revision-partner, motivation-coach, research-integrator) plus an optional **compress-fiction** codec for drafting at ~20x fewer output tokens. This framework is the *chassis and the assembly line* that drives them the same way every time.
 
 ---
 
